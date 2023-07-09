@@ -1,0 +1,42 @@
+baseUrl: /
+languageCode: en-us
+theme: terminal
+paginate: 5
+
+params:
+  # dir name of your blog content (default is `content/posts`)
+  contentTypeName: posts
+  # ["orange", "blue", "red", "green", "pink"]
+  themeColor: pink
+  # if you set this to 0, only submenu trigger will be visible
+  showMenuItems: 3
+  # show selector to switch language
+  showLanguageSelector: false
+  # set theme to full screen width
+  fullWidthTheme: false
+  # center theme with default width
+  centerTheme: false
+
+languages:
+  en:
+    languageName: English
+    title: 圈圈中文
+    subtitle: 圈圈中文
+    keywords: ''
+    menuMore: 展示更多
+    readMore: 阅读
+    readOtherPosts: 读更多文章
+
+    params:
+      logo:
+        logoText: 圈圈中文
+        logoHomeLink: /
+
+    menu:
+      main:
+      - identifier: 网址索引
+        name: 网址索引
+        url: /网址索引
+      - identifier: 学校
+        name: "#学校"
+        url: /tags/学校

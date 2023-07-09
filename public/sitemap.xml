@@ -2,17 +2,30 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   <url>
-    <loc>http://example.org/</loc>
+    <loc>/posts/</loc>
+    <lastmod>2023-07-09T20:57:07+02:00</lastmod>
+  </url><url>
+    <loc>/tags/</loc>
+    <lastmod>2023-07-09T20:57:07+02:00</lastmod>
+  </url><url>
+    <loc>/tags/tom/</loc>
+    <lastmod>2023-07-09T20:57:07+02:00</lastmod>
+  </url><url>
+    <loc>/tags/%E5%90%8C%E6%80%A7%E6%81%8B/</loc>
+    <lastmod>2023-07-09T20:57:07+02:00</lastmod>
+  </url><url>
+    <loc>/</loc>
+    <lastmod>2023-07-09T20:57:07+02:00</lastmod>
+  </url><url>
+    <loc>/tags/%E5%AD%A6%E6%A0%A1/</loc>
+    <lastmod>2023-07-09T20:57:07+02:00</lastmod>
+  </url><url>
+    <loc>/posts/%E8%AF%AF%E8%A7%A3/</loc>
+    <lastmod>2023-07-09T20:57:07+02:00</lastmod>
+  </url><url>
+    <loc>/posts/%E7%BD%91%E5%9D%80%E7%B4%A2%E5%BC%95%E7%9B%AE%E5%BD%95/</loc>
     <lastmod>2023-07-09T19:58:08+02:00</lastmod>
   </url><url>
-    <loc>http://example.org/posts/</loc>
-    <lastmod>2023-07-09T19:58:08+02:00</lastmod>
-  </url><url>
-    <loc>http://example.org/posts/%E7%9B%AE%E5%BD%95/</loc>
-    <lastmod>2023-07-09T19:58:08+02:00</lastmod>
-  </url><url>
-    <loc>http://example.org/categories/</loc>
-  </url><url>
-    <loc>http://example.org/tags/</loc>
+    <loc>/categories/</loc>
   </url>
 </urlset>
