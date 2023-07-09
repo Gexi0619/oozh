@@ -15,7 +15,7 @@ params:
   # set theme to full screen width
   fullWidthTheme: false
   # center theme with default width
-  centerTheme: false
+  centerTheme: true
 
 languages:
   en:

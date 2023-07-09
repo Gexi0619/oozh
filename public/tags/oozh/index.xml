@@ -1,0 +1,72 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>oozh on 圈圈中文</title>
+    <link>/tags/oozh/</link>
+    <description>Recent content in oozh on 圈圈中文</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en</language>
+    <lastBuildDate>Sun, 09 Jul 2023 22:24:26 +0200</lastBuildDate><atom:link href="/tags/oozh/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>词汇列表</title>
+      <link>/posts/%E8%AF%8D%E6%B1%87%E5%88%97%E8%A1%A8/</link>
+      <pubDate>Sun, 09 Jul 2023 22:24:26 +0200</pubDate>
+      
+      <guid>/posts/%E8%AF%8D%E6%B1%87%E5%88%97%E8%A1%A8/</guid>
+      <description> 英文 中文 myodisc 开圈眼镜 </description>
+      <content>&lt;table&gt;
+&lt;thead&gt;
+&lt;tr&gt;
+&lt;th&gt;英文&lt;/th&gt;
+&lt;th&gt;中文&lt;/th&gt;
+&lt;/tr&gt;
+&lt;/thead&gt;
+&lt;tbody&gt;
+&lt;tr&gt;
+&lt;td&gt;myodisc&lt;/td&gt;
+&lt;td&gt;开圈眼镜&lt;/td&gt;
+&lt;/tr&gt;
+&lt;tr&gt;
+&lt;td&gt;&lt;/td&gt;
+&lt;td&gt;&lt;/td&gt;
+&lt;/tr&gt;
+&lt;tr&gt;
+&lt;td&gt;&lt;/td&gt;
+&lt;td&gt;&lt;/td&gt;
+&lt;/tr&gt;
+&lt;/tbody&gt;
+&lt;/table&gt;
+</content>
+    </item>
+    
+    <item>
+      <title>网址索引目录</title>
+      <link>/posts/%E7%BD%91%E5%9D%80%E7%B4%A2%E5%BC%95%E7%9B%AE%E5%BD%95/</link>
+      <pubDate>Sun, 09 Jul 2023 19:58:08 +0200</pubDate>
+      
+      <guid>/posts/%E7%BD%91%E5%9D%80%E7%B4%A2%E5%BC%95%E7%9B%AE%E5%BD%95/</guid>
+      <description>eyescene 一个古老的论坛式网站，现在只能在wayback machine中查看。
+https://web.archive.org/web/20170830002115/http://eyescene.net/cgi-bin/threads.cgi
+vision and spex 一个现在仍在活跃的论坛式网站。
+https://vision-and-spex.com/
+bobby 来自捷克的Bobby的网站，收录了他和其他一些作者的文章，已经不再运营，只能在wayback machine中查看。
+https://web.archive.org/web/20221113110114/http://bobbygoc.sweb.cz/index.htm
+bobby 新 新的bobby的网站，收录了更多作者的文章，现在仍在活跃。
+http://bobbylaurel.blogspot.com/</description>
+      <content>&lt;h2 id=&#34;eyescene&#34;&gt;eyescene&lt;/h2&gt;
+&lt;p&gt;一个古老的论坛式网站，现在只能在wayback machine中查看。&lt;/p&gt;
+&lt;p&gt;&lt;a href=&#34;https://web.archive.org/web/20170830002115/http://eyescene.net/cgi-bin/threads.cgi&#34;&gt;https://web.archive.org/web/20170830002115/http://eyescene.net/cgi-bin/threads.cgi&lt;/a&gt;&lt;/p&gt;
+&lt;h2 id=&#34;vision-and-spex&#34;&gt;vision and spex&lt;/h2&gt;
+&lt;p&gt;一个现在仍在活跃的论坛式网站。&lt;/p&gt;
+&lt;p&gt;&lt;a href=&#34;https://vision-and-spex.com/&#34;&gt;https://vision-and-spex.com/&lt;/a&gt;&lt;/p&gt;
+&lt;h2 id=&#34;bobby&#34;&gt;bobby&lt;/h2&gt;
+&lt;p&gt;来自捷克的Bobby的网站，收录了他和其他一些作者的文章，已经不再运营，只能在wayback machine中查看。&lt;/p&gt;
+&lt;p&gt;&lt;a href=&#34;https://web.archive.org/web/20221113110114/http://bobbygoc.sweb.cz/index.htm&#34;&gt;https://web.archive.org/web/20221113110114/http://bobbygoc.sweb.cz/index.htm&lt;/a&gt;&lt;/p&gt;
+&lt;h2 id=&#34;bobby-新&#34;&gt;bobby 新&lt;/h2&gt;
+&lt;p&gt;新的bobby的网站，收录了更多作者的文章，现在仍在活跃。&lt;/p&gt;
+&lt;p&gt;&lt;a href=&#34;http://bobbylaurel.blogspot.com/&#34;&gt;http://bobbylaurel.blogspot.com/&lt;/a&gt;&lt;/p&gt;
+</content>
+    </item>
+    
+  </channel>
+</rss>
