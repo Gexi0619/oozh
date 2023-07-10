@@ -37,6 +37,6 @@ languages:
       - identifier: 网址索引
         name: 网址索引
         url: /posts/网址索引目录
-      - identifier: 学校
-        name: "#学校"
-        url: /tags/学校
+      - identifier: 校园
+        name: "#校园"
+        url: /tags/校园
