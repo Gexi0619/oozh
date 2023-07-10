@@ -34,9 +34,12 @@ languages:
 
     menu:
       main:
-      - identifier: 其他
-        name: 其他
+      - identifier: 说明
+        name: 说明
         url: /tags/oozh
-      - identifier: 校园
-        name: "#校园"
-        url: /tags/校园
+      - identifier: 所有标签
+        name: "所有标签"
+        url: /tags/
+      - identifier: 我的喜欢
+        name: "我的喜欢"
+        url: /tags/greycatlike/

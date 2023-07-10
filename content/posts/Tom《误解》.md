@@ -1,9 +1,9 @@
 ---
-title: "《误解》"
+title: "Tom《误解》"
 date: "2023-07-09T20:57:07+02:00"
 author: "Tom the Hungarian"
 cover: ""
-tags: ["校园", "同性恋","Tom", "精华"]
+tags: ["校园", "同性恋","Tom", "greycatlike"]
 keywords: ["", ""]
 description: "青梅竹马和对眼镜强烈羞耻与隐藏的故事"
 showFullContent: false

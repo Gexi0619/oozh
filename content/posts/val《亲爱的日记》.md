@@ -1,10 +1,10 @@
 +++
-title = "《亲爱的日记》"
+title = "val《亲爱的日记》"
 date = "2023-07-09T00:15:20+02:00"
 author = "val"
 authorTwitter = "https://vision-and-spex.com/memberlist.php?mode=viewprofile&u=2" #do not include @
 cover = ""
-tags = ["校园", "val", "精华"]
+tags = ["校园", "val", "greycatlike"]
 keywords = ["", ""]
 description = "长达三年的女孩视力日记"
 showFullContent = false
