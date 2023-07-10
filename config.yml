@@ -34,9 +34,9 @@ languages:
 
     menu:
       main:
-      - identifier: 网址索引
-        name: 网址索引
-        url: /posts/网址索引目录
+      - identifier: 其他
+        name: 其他
+        url: /tags/oozh
       - identifier: 校园
         name: "#校园"
         url: /tags/校园
