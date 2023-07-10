@@ -7,3 +7,18 @@
 [submodule "themes/binario"]
 	path = themes/binario
 	url = https://github.com/vimux/binario
+[submodule "themes/hugo-theme-texify"]
+	path = themes/hugo-theme-texify
+	url = https://github.com/queensferryme/hugo-theme-texify.git
+[submodule "themes/hugo-texify2"]
+	path = themes/hugo-texify2
+	url = https://github.com/weastur/hugo-texify2.git
+[submodule "themes/themes/smigle"]
+	path = themes/themes/smigle
+	url = https://gitlab.com/ian-s-mcb/smigle-hugo-theme.git
+[submodule "themes/smigle"]
+	path = themes/smigle
+	url = https://gitlab.com/ian-s-mcb/smigle-hugo-theme.git
+[submodule "themes/hugo.386"]
+	path = themes/hugo.386
+	url = https://gitlab.com/jmfergeau/hugo.386
