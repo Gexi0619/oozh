@@ -22,3 +22,7 @@
 [submodule "themes/hugo.386"]
 	path = themes/hugo.386
 	url = https://gitlab.com/jmfergeau/hugo.386
+[submodule "themes/blowfish"]
+	path = themes/blowfish
+	url = https://github.com/nunocoracao/blowfish.git
+	branch = main

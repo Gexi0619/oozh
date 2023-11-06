@@ -1,0 +1,16 @@
+---
+title: "Chrissy's Story  - Part 3"
+author: soundmanpt
+date: '2018-06-30'
+categories:
+  - soundmanpt
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+Well it's been a few months since Chrissy found out that Tom was cheating on her with another glasses wearing girl. For Chrissy Tom is just a bad memory that she only wants to forget. As it turns out she is much happier with Joe from her hometown school. She sometimes wonders how much different things would have been for her if she had been able to go on that date with Joe when he first asked out. She likely would have never met Tom which would have also meant that she wouldn't have had any reason to start wearing glasses. When she caught Tom cheating the first thing she thought of was that she had ruined her perfect eyesight so she could make him happy by becoming a glasses wearer. But the more she though about it the more she really didn't mind wearing glasses and even found glasses to be somewhat empowering for her. She now feels more in control and is ready to face any challenge that comes along. She has been with Joe now for the past 3 months and he is the sweetest guy any girl could want. He's very gentle and unlike Tom when we make out Joe carefully takes my glasses off and so they don't get in the way. And even when he kisses me with my glasses on he is very careful not to mash them in to my face which Tom seemed to do constantly. I think Joe likes the idea that he is really the only one now that ever sees me without glasses anymore. And of course he tells me that i'm beautiful either way. With or without glasses. He really sees to like my new glasses even more than my previous ones. Oh yeah I forgot to mention that when school started I started wearing the next stronger pair of glasses that Diane had given be. It was kind of arousing having my eyes adjust to the stronger lenses. It reminded me of those first days when I first started wearing glasses as my eyes were straining to adjust to them. of course just like with my first glasses once my eyes adjusted to them my vision was perfect with glasses and just blurry enough that I needed glasses to see clearly. Now since my eyes have adjusted to these glasses i'm still seeing perfect wearing them but things are noticeably more blurry than with my previous glasses. Before I was able to do some things around the dorm without glasses. But not anymore. I think I will be moving in with Joe soon. He has asked me several times and I think we are ready for that next step. So maybe things really worked out the way they were supposed to? I have Joe in my life now and he seems like he could be my husband one day and i'm wearing glasses something i never ever gave any thought to and i'm really quite happy as a glasses wearer now. Not long ago I commented to Joe that I was considering getting contacts just to see what he would say. He only said that it was up to me. That he thinks I look great either way. I know if I had said that to Tom he would have quickly insisted that i should only wear glasses. I'm glad he's some other glasses wearing girls problem now. I really feel sorry for her. ( shhh I have no intentions of ever getting contacts I enjoy wearing glasses too much now)    
+
+https://vision-and-spex.com/chrissy-s-story-part-3-t982.html

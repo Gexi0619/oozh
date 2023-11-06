@@ -1,0 +1,34 @@
+---
+title: "Glasses Moments 6 - Finding 'Miss Right'"
+author: nic
+date: '2015-01-27'
+categories:
+  - nic
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+This true story features the beautiful myopic girl who was to become my wife.
+
+After a string of various girlfriends over the years, some of them GWGs, some not, I finally met “The One”. She was right under my nose all the time in my work place, but I had a thing about not dating girls I worked beside or from the same company. It was a recipe for disaster if it ever went sour, so I kept my distance and admired Lynne from afar. But every time I saw her, my heart did double back-flips and I knew she was the one. There was only one drawback – she didn’t wear glasses, but what the heck! She was a dead ringer for my idol at that time, Karen Carpenter, and the likeness was uncanny.
+
+I waited until I was leaving the company and then asked her out. To my dismay, she accepted, and we had our first date. The first date turned into a second date, then a third, and so on and so forth. She was just absolutely gorgeous. One thing I did notice about her however was that I thought she had trouble with her eyes. I didn’t want to say anything, but when I was with her I noticed she would constantly make strange gestures with her mouth, like she was trying to pull her cheeks down from her eyes. Also sometimes she would put her thumb below one lower eyelid, her forefinger below the other lower eyelid, and draw her eyelids downwards. I was fascinated by this behaviour, and one night I asked her if she was OK, and were her eyes hurting. She got very defensive over my comment, and I regretted saying anything. She changed the subject and told me not to get so personal! I thought it was all over. That was on a Thursday night, and our next date was arranged for Saturday night. I turned up at her house as usual, and straight away it all became apparent.
+
+She answered her door, and I was absolutely astounded – she was wearing glasses. She told me she couldn’t go out and to just go away. She was totally embarrassed and said she didn’t want me, or anyone, to see her like this, and on top of that, she said she couldn’t see properly. I managed to calm her down, and persuaded her to ask me in.
+“This is terrible,” she said, “my worst nightmare. I wear contact lenses but I didn’t want you to know I had terrible eyesight. That’s not good for a girl. They’ve been irritating me for a few weeks and today I couldn’t put them in, they were just hurting too much. And these glasses are the ones I got when I was 19 and they are much too weak. I can’t see a thing with them, but they’re better than nothing.”
+I thought they were beautiful. They were a very slim cat’s eyes style in black plastic, very popular with young girls in the sixties. Look at any video of a Beatles concert and you’ll see lots of girls with them in the crowd screaming their hearts out! I asked her if we could go out as planned, and she said she was going nowhere in public with these on. I had different ideas, and I persuaded her to go out in my old beat-up Transit van I had at the time, and we would just go down to the local harbour, get an ice cream, walk about the harbour and then see what happened when we got back to the van. I knew what I wanted to do – I wanted to kiss that gorgeous girl in the glasses!
+
+She said OK, but on condition that I held onto her all the time and guided her. Of course I agreed. I was shaking with excitement when I helped her out to the van, opened the door for her and assisted her inside. We set off, and I just couldn’t keep my eyes off her. This was total magic to me. All of my dreams come true. Lynne on the other hand didn’t see it that way. She thought of herself as disabled and was very self conscious about the whole thing. She did not share my attraction to glasses. I had to work on her very hard to get her to accept that she was perfectly normal, and completely gorgeous! She told me she had thought it was the end of her world when she got these glasses and the optician told her she would have to wear them full-time from then on. She hated going out with friends and often wouldn't wear them as she thought they made her unattractive to boys. I guess it was more like that for girls in the sixties. She wore them for 2 years and then got contacts for her 21st birthday. They were expensive then.
+
+I was still mesmerised by her appearance when we drove down the little road to the harbour which ended at a T-junction. I kept looking at her all the way, and as I was about to turn left at the junction, I pulled out and - SMASH! A small van had run right into the side of me. Lyne started to get hysterical and shouted to me that I had pulled out right in front of him. I said no, he wasn’t there when I pulled out. He just appeared from nowhere, he must have been speeding. Well, I had to get out, and the other driver got out too. My old van wasn’t damaged badly, but the front of his was a write-off I thought. Oh dear! Then he argued that it was my fault and he had the right of way, so I said he was speeding. He denied it, so I looked in his van. The speedometer had jammed due to the impact and it showed 38 mph. It was a 20 mph limit on the harbour road. He said it wasn’t working. “OK,” I said, “let’s call the police and they can sort it out. You’re driving an illegal vehicle if the speedo’s not working.” At that point he became very nice to me and pleaded not to call the police. He also said not to involve the insurance companies and he gave me his phone number. He said he would pay for the damage to my van, and all the time he was doing this I could smell strong drink on his breath. We parted amicably, and I climbed back in beside my bespectacled goddess.
+
+We went for an ice cream, and a walk, and I’ll never forget holding tightly onto Lynne and guiding her around the harbour. She said she could see nothing. Everything was a complete blur to her. Then she called me her guardian angel. No dear – YOU were the angel!
+
+We got back to her house, and I guided her in. We would go to her bedroom to talk and her parents were OK with this, but when we started to kiss while she still had her glasses on I had to fight very hard every feeling I was having telling me to go further. I knew there was going to be plenty of time for all of that because I knew she was the one.
+
+It turned out she had an infection in her eyes and she was off work for a week. Her lenses were the early old-fashioned hard lenses which she would wear from getting up to going to bed. Not a good idea as it became apparent much later that the blood vessels were rising towards the surface of her eyeballs due to oxygen starvation. That’s another story. But this story only goes to prove that glasses can cause a crash!
+
+https://vision-and-spex.com/glasses-moments-6-finding-miss-right-t568.html

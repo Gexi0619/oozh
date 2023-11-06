@@ -1,0 +1,26 @@
+---
+title: "Peter's story.."
+author: soindiana88
+date: '2019-11-12'
+categories:
+  - soindiana88
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+Peter is now a semi retired special needs teacher but as the late great Paul Harvey said so many times over the years the rest of the story.
+Peter was born in 1964 in Pikeville Kentucky in an area noted for coal mining. Peter's Dad was a coal miner until shortly after he was born and then went to work in manufacturing due to concern about coal dust.
+Peter started 1st grade in 1970 and it seemed he was a little slow with the now non PC word retarded being used. As school went on Peter was bullied by classmates calling him dumb and as kids then and now can be cruel. Due to his Dad not making the money he did in coal mining the family could not afford the extenisve testing. As school went on in 3rd grade Peter got a bit of a break when a special class was started for special needs students so the bullying while not completely stopping slowed way down.
+The reason teachers, school administrators thought Peter was mentally challenged was while reading he seemed to often lose his place. The school being in a poor part of the state did not have the resources to get Peter tested. On written tests Peter did poorly but if you gave him a verbal test he did great.
+Peter's break came early in what should have been his 6th grade year. 8th grade honor student Craig  was assigned to help with the special needs students. Craig trying to assist Peter with reading wondering about his vision and asks what type of eye exams Peter has had. Peter replies only on a chart in an MD's office and at school and only one eye at a time. Craig has Peter close his right eye and try to read aloud and he does not lose his place with that eye but does lose his place with his left eye. Craig decides to talk over Peter's problem with his Dad who just happens to be and Optometrist. Craig's Dad agrees with him that it is most likely a vision problem probably Astigmatism. Craig in his duties sits in on some parent teacher conferences including with Peter's parents. Craig explains that his Dad thinks Peter's only problem could be he needs glasses. Peter's parents explain that he has always showed 20/20 on the chart and express concern about costs. Craig says bring Peter to my Dad's office and he said we willl work something out.
+Peter visits the Optometrist office and is prescribed glasses for high Astigmatism. The other break when it came time to pay. The receptionist was to retire and the office would need a new one. Peter's Mom who had been working as a waitress to supplement the families income was offered the job and accepted. The good part about that was the family now qualifed for free eye exams and glasses at cost to the office. Two other benfits were not being on hre feet so much and not having to rely on tips as this was a guarnteed income.
+Peter gets his glasses the first part of October and when ask to read on his first day wearing them does great.  Peter is then put in a 4th grade normal class and by the end of the first semester in January is where he belongs in 6th grade. Peter makes the honor roll the last semester of 6th grade.
+Peter goes thru Jr. and high school making the honor roll every time. When the high school has a voluntary IQ test Peter tests at near genius level. Peter earns about 75% of college paid for thru scholarships. Peter no suprise selects a major pertaining to teaching special needs students. Peter does take 5 years to graduated due to having to work to help pay for his studies. Peter's parents help all they can so with that, scholarships and what he paid graduates debt free. 
+Peter after teaching for a year in Pikeville takes a job in Louisville the states largest school system where he taught for 30 years before he retired after last school year. Peter was not ready to retire but the pension rules were changing and decided to get out early though he still subistute teaches when needed.
+Peter who never married and Craig who became an Optometrist like his Dad to this day remain good friends. Peter has always made the almost 4 hour drive one way to Pikeville to have his yearly eye exams first with Craig's Dad and after retiring with Craig. Both Craig and his Dad encouraged Peter to find an Optometrist in Louisville but he refused. Peter said if not for you two I would be living in a group home somehwer instead of teacing special needs students. Craig married while in college and the couples only child a Daughter is a special needs teacher in Pikeville.
+Note this story is fantasy but a friend of mine was held back a year in grade school due to Hyperopia and anybody that knows him can tell he is not dumb.
+
+https://vision-and-spex.com/peter-s-story-t1512.html

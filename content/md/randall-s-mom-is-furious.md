@@ -1,0 +1,16 @@
+---
+title: "Randall's Mom is furious"
+author: soindiana88
+date: '2019-06-17'
+categories:
+  - soindiana88
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+In 2012 the school district 9 year old Randall attended decided to stop doing vision screenings due to budget cuts. In place of the screenings the district decides to require an Optometrist exam every other year and this is where the problems start. Randall who had only ever been checked on a Snellen chart at his Doctor's office and on the machine at school. Randall's Mom goes to a school board to protest but is correctly told the school screening does not show either diseases of the eye or Astigmatism. On all these checks Randall has always showed 20/20 vision. The school board stands firm on the requirement. Randall the year before this had complained of headaches and his MD suggested an Optometrist appointment. Randall's Mom accused the MD of trying to drum up business for the only Optometrist in the small town who just happens to be his Wife. Randall goes to the one Optometrist in town and is told he has Astigmatism and by school policy is required to get glasses but his Mom is not having the diagnosis. The Mom takes Randall to two different Optometrist in nearby towns and get the same diagnosis. Randall wants to try the glasses to see if they help his headaches and his Mom finally agrees and but says you are only going to wear glasses when in school and reading at home though all the Optometrists tell him and his Mom he has enough Astigmatism to wear them full time. Randall an incoming 4th grader gets his glasses and even though no question he has 20/20 vision is amazed at how much they help with everything. Randall wears his glasses all day at school and when doing homework and reading at home but is ordered by his Mom to take them off when doing such things as watching TV. This all goes on with some prescription changes until Randall turns 16. Randall's Mom has read on the internet that the gauge for wearing glasses all the time is if a person can't pass the drivers license or permit exam. Randall devises a plan which works perfect when going to get his permit. Randall even though he still has 20/20 distance vision "throws" the exam at the DMV. Randall says he can't see the line without his glasses even though he can. Randall now has a learners permit restricted to glasses and his Mom begrudgingly says it looks like you need them all the time now. Randall is looking forward to getting his drivers license and just to make sure his Mom doesn't change her mind he is going to tell the BMV he can't see the line without his glasses which he can. Just a note the glasses really helped the headaches.
+
+https://vision-and-spex.com/randall-s-mom-is-furious-t1329.html

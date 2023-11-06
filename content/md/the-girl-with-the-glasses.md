@@ -1,0 +1,118 @@
+---
+title: The Girl with the Glasses
+author: Andrew
+date: '2019-04-22'
+categories:
+  - Andrew
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+It was the biggest gamble I had ever taken, and I knew it.  If it paid off, I’d be my own boss for the rest of my working life, and I’d be able to retire when I wanted to.  If it didn’t, I’d probably be working until I was seventy, just to pay off the loans and debts I’d taken on.  In a time where online shopping had still not peaked, and when High Streets were suffering, it may have seemed strange to be opening up in a village.  However, with all the new building going on around, the village centre had kept all its shops, and I had had to wait a couple of years to buy the old florists’, and the only reason it had come on the market was that Mr. and Mrs. Bolton, who had been running it since before I had been born, had finally decided to retire.
+ 
+The last few weeks had been incredibly hard work.  I’d been working my regular day job in one of the stores in town, and in the evenings, I had been hard at work setting up my own.  Today, was my first day as my own boss.  I’d got in early, so I was ready to open up at ten o’clock.  I hadn’t got any appointments at all, so for all I knew, I was going to be sitting on my own all day, until closing time, at six in the evening.  I’d decided to stagger my opening times slightly from the other shops, as I hoped that the convenience of being open a little later would also bring in business from people coming in after work.
+ 
+It was about twenty past ten when the door opened, and a lady who was about the same age as me came in.
+ 
+“Good morning.  I was hoping to…” she began, and then tailed off.  She looked at me more closely.  “It IS you.  I did wonder when I saw the shop name.  You’re…”
+ 
+…………………………………………………………………………………………………………………………………………………………….
+ 
+I was born Juliette Brown, some thirty-one years ago.  I was the younger of twins.  My older brother, George, was more than happy to remind me that he was eleven minutes my senior, and although we got along quite well, we saw little of each other, as his job had taken him to the other side of the country.
+ 
+My story begins when we had just turned seven years old.  Coming out of school one Thursday afternoon, George and I were told that we both had an appointment in town.  It wasn’t unusual for Mum not to tell us in advance, as she knew how much we both hated going to the dentist, and one or other of us would often claim to be unwell, so she had to drag us in, kicking and screaming, to have our teeth looked at.
+ 
+However, when we got into town, we parked at the opposite end of the town to the dentist’s, which had us both asking where we were going.
+ 
+“You’ll see…,” Mum had said, chuckling to herself.
+ 
+It turned out that she had made appointments for us to have our eyes checked.  I never have asked her whether there was a specific reason why she made those appointments, but it was certainly a turning point in my life.
+ 
+It seemed like we were sitting in the waiting room for absolutely ages, before a side door opened, and an elderly gentleman in a white coat, came out and said “George and Juliette Brown?”  As we got up from our seats, he invited us into the room he had just come out of.
+ 
+“Who’s first?”
+ 
+“I’m older than you,” said George, “so I’ll go first.”  This was not unusual for him.  The only time I got to go first was when he didn’t like what was on offer – which was usually a kiss from Auntie Dolly or an injection at the doctor’s.
+ 
+I sat quietly beside my mother, watching as George was given various tests.  He was made to try on various different pairs of glasses and read all sorts of different things, both on the wall and in different books that the man had given him.  He had his eyes examined using all sorts of different gadgets and machines.  I was convinced that he was going to need glasses because of all the tests he seemed to have to do.  At the end, he was given some special eye drops so that the man could get a better look inside his eyes, but he was told that everything looked fine, that he had good eyesight, and didn’t need glasses at all.  
+ 
+Then, it was my turn.  He started by asking me some questions.  No, I wasn’t having trouble seeing.  No, I wasn’t seeing double.  No, I didn’t get lots of headaches.  The usual sorts of things.  Then, he shone a bright light in my eyes, before putting one of the funny pairs of glasses on me and asking me to read the wall chart.  I could read all of the letters on it with both eyes.  When he made me do it with one eye at a time, it was a bit harder, but I think I got most of the letters right.  After that, I had to try on different glasses and look at things in books, just like George had, before I, too, was given the special eye drops.  We were then told to go and sit back in the waiting room, to allow the drops to take full effect.  The man had a quick word with Mum before she came back and joined us, but as she had bought us each a comic to keep us quiet, we didn’t really notice that we were on our own for a couple of minutes.
+ 
+When George sat back in the big, black chair, he was probably there for a couple of minutes.  The man used another machine to look into his eyes, before stopping to write a few notes, and then it was my turn.  
+ 
+Instead of going straight for the machine, he put one of the funny pairs of glasses on me again, and asked me to read the chart.  This time, it was much harder, and when I started to struggle, he put a lens in, and asked if it made things any clearer.  This happened a few times.  Usually, it was better, but sometimes it wasn’t.  Eventually, he seemed satisfied, and chose the same machine he had used on George to look at my eyes.
+ 
+I don’t really remember much of the next few minutes.  A few words like “long-sighted” and “all the time” stuck in my mind, but before I knew it, I was back out in the shop, trying on frames for “my glasses.”
+ 
+It was a couple of weeks before they were ready for us to collect.  In the meantime, I had started paying closer attention to the glasses people were wearing.  In my class, there was only one boy who wore glasses.  His name was also George, and his glasses made his eyes look enormous.  They seemed to bulge out a lot at the front.  I hoped my glasses did not end up looking like his.  There were four or five other children who also wore glasses all the time, but none of them had glasses quite like George.
+ 
+It was quite a relief when I finally got to see myself in glasses.  Yes, they did make my eyes look a little bigger, but it wasn’t anything too extreme.  I didn’t really feel I could see any better with them on, but had been told that there was a chance that I might grow out of them, if I wore them as I was told, so I went along with my orders.  Besides, I knew I would be in trouble if my brother, George, saw me in school without them on.  I’m not sure who it was who started using the term (I bet it was him), but before long, I was known as “the girl with the glasses.”  It was only when I started hearing the words used about me, that I realised that I was the only girl in the school who wore glasses.  All the other children with poor eyesight were boys.
+ 
+Rather than making me ashamed of my eyesight, I took a certain amount of pride out of the fact that they clearly made me a bit different.  On the occasions when I had to take my glasses off, for PE lessons, I made rather more fuss than was really necessary about putting them back on, so that I could see clearly again.
+ 
+It was six months, to the day, when I went back for my follow-up appointment.  This time, it was just me, as George didn’t need to be there.  In fact, he stayed at home with our Dad, while I went into town with Mum.  Although I had been wearing my glasses almost religiously, I still couldn’t really say for sure whether they made much of a difference.  True, they made everything look a bit bigger, and I could see clearly across the room with them, when others who tried them said it made things a bit blurry, but I sat in the big, black chair, with a certain amount of trepidation, lest I be told that I didn’t need them anymore.
+ 
+I needn’t have worried.  Although I didn’t seem to have as many tests as the first time, I was a little surprised when I was told that my glasses needed to be made a little stronger.  Mum did ask about whether we could get new lenses put into the frames I was wearing, since I seemed to like them so much, but was told it would probably be better to get a new pair for me, as I wouldn’t have to be without my glasses in the meantime, and it would give me a spare pair in case of accidents.  I reckon I tried on most of the frames in the shop, before settling on the one I liked.  Mum had tried to persuade me to go for another pair of brown frames, but I preferred the navy blue ones, as it would make it obvious to everyone that I had new glasses.
+ 
+When I got them home, I compared the two pairs.  I could tell there was a difference, and I could just about see that the new glasses made my eyes a little bigger, but I’m not sure it was that obvious – apart from the change in frame colour.  I had been a little concerned that the lenses would be very strong, but the optician had reassured me that they were only +2 lenses, and that a lot of people wore glasses which were much stronger than mine.
+ 
+As I had hoped, my friends did notice my new glasses.  They did elicit a few comments of “wow, these are strong”, and “cor, you must be blind,” but I didn’t complain.  I was enjoying being in the limelight too much.  I also made sure that everyone knew they were stronger than my last pair, so I needed them even more.
+ 
+My status as “the girl with the glasses” changed to “a girl with glasses” at the start of the new school year.  One of the new girls in year 3 wore glasses, and Yasmine, a girl in my class, had also come back to school with specs.  We tried swapping glasses, as hers were a similar style to mine, but neither of us could see well in the other’s glasses.  She told me that she was a bit short-sighted.  Unlike me, she didn’t need (I loved it when she used that word) to wear her glasses all the time, like me, but chose to do so in school as they helped with seeing the board, and if she put them on before school, she wouldn’t forget them and be stuck.
+ 
+I was looking forward to my next eye test when it came around.  I had already decided what sort of frames I wanted for my new glasses.  I was very disappointed when I was told that there had only been a slight change, and that I didn’t need new glasses this time.  I was even more disappointed when I was told I didn’t need to come back for another year.  I did consider having an “accident” with my glasses, or misplacing them somewhere, but decided that it wouldn’t have been worth the grief I would have got from my parents.  I told myself that if there had been a slight change this time round, it would probably have been a bigger one next time, so new glasses were almost a certainty next year.
+ 
+I was right, but the appointment didn’t go quite as I had expected.  Yes, I still needed glasses, but they were doing their job, and my eyes had started to go back to where they should be.  +1.25 didn’t sound nearly as impressive as +2.  I decided to go for the same frame as before, so I could swap between the two when I wanted, but when I started to think about it, I wasn’t at all sure what I wanted to do.  The old glasses had made my eyes get better, but I could see better with the new prescription.  In the end, I wore the new pair, as with 18 months wear, the old ones had started to get scratches on the lenses.  Besides, no-one outside the family knew that my eyes had got better, although I did tell Yasmine when she came into school with new glasses – especially when she told me that hers were -1.25 in both eyes.
+ 
+By the time I was in my last year at Primary school, my prescription was only +0.75.  I still wore my glasses with pride, and claimed I needed them to see, but by this point, they didn’t look much more than plain glass.  What’s more, when they were dirty, I could now see better without them than I could with.  Louise, another girl in my class, had helped to increase the number of female glasses-wearers in our class to three, so I no longer felt quite so special.  I still wore my glasses all of the time, but it was only really to keep up being “the girl with the glasses.”
+ 
+When my mother announced that she was taking us to the optician’s just before we started secondary school, I was pretty certain what was going to happen.  My eyes had improved again; I now only needed +0.25 in both eyes.  I tried to argue that they made a big difference to me, and that getting them might help my eyes to improve some more, but the optician said that I wouldn’t even notice the difference between wearing them and not wearing them.  To make matters even worse, George was told he was a bit short-sighted, and that he should start to wear glasses when he needed to see clearly.
+ 
+All in all, I was mortified by the outcome – the girl with the glasses didn’t have glasses.  When I was alone in my bedroom, I tried on all of my old pairs, and combinations of them, but there was no doubt whatsoever, I could always see better without them.  I thought about telling my friends that I had gone for contact lenses, but one of the downsides of having a twin, is that he knows the truth about some things.  I even tried George’s new glasses when he got them – again, I could see better without them.
+ 
+My life was in ruins!  I wanted to have glasses, and my brother had them, but he hardly ever wore them – and there was nothing I could do about it.  I felt like a failure, as I could no longer live up to my nickname.  I did still wear my old glasses sometimes, when I was safely locked away in my room, or there was nobody else in the house, but it just wasn’t the same as needing them.  Also, as I was going through a bit of a growth spurt, they didn’t fit as well as they had done.  I was also surprised by how strong the +2 glasses now seemed.  Around the house, they were fine, but when I looked out of the window, I had to take them off if I wanted to see clearly.
+ 
+At this point, I have a confession to make.  I stole George’s glasses.  He’d had them for about 9 months, and I never saw him wearing them.  We shared one or two classes in school, so I knew he never wore them there, and as he spent most of the evenings in his bedroom, I doubt he wore them then – and he certainly never put them on to go out with his friends, even when they went to the cinema.  The disappearance of the glasses only came to light a couple of days before our annual visit to the optician, and I couldn’t think of a way to get them back to him without them seeming to appear from nowhere in a place he had already looked.  In fact, I think I probably got more use out of those glasses than George did – although I had to limit my wearing of them to when I was alone in the house.
+ 
+It turned out that George needed a slightly stronger prescription.  If he hadn’t lost his old glasses, he could have kept them for a further year, as he had only had a one-step change in each eye.  As I was sitting with my mum watching his eye test, I watched and listened particularly carefully, and tried to memorise the letters on the chart as well, anxiously awaiting my turn.
+ 
+I’m not quite sure how I would describe my feelings at the end of the sight test.  Disappointed, yes, because I still didn’t need glasses.  Confused, yes, because I kept saying that each lens made things better than whatever was in front of my eye at the time.  Excited, also, because I was told my eyes had changed again.  Intrigued, as well, as I was apparently beginning to show signs of becoming short-sighted, like George.  However, I wasn’t going to give up without a fight, and asked why I didn’t need glasses if I was now short-sighted.
+ 
+“Wait there,” said the optician, and disappeared for a minute or so.  He came back with a couple of lenses.  “Better with, or without?”
+ 
+There really was very little difference, but I said it was better with.  He then explained to me that the lenses I was wearing were the weakest ones which existed, and that they only had them for when people couldn’t make up their minds between two prescriptions.  He’d never met anyone who had been given that prescription, and that anyone who did need it would probably see better without the glasses as the moment they became remotely dirty, their vision would be clearer without.
+ 
+It hadn’t taken George more than a minute to decide to get the same frames as the pair he had lost, so my mum was waiting for me by the time I emerged from the testing room.  The optician had a quick word with her, and said to both of us that he’d see us again in a year’s time, unless we needed to come back before then.
+ 
+It didn’t take me long to decide that, if both George and I were short-sighted, it only made sense for me to wear his glasses, especially when no-one else was at home, and as we were growing up, Mum often left one or both of us at home alone when she went to the shops.  George had had his new glasses for a couple of weeks or so before I got the opportunity to compare both pairs.  There really was very little difference, as far as I could tell.  I couldn’t resist it, so I gave him his old pair back, and kept the newer one.
+ 
+It was about 10 months later, at the beginning of the Summer holidays, that I found myself with a day at home, with nobody else around.  My parents were at work, and George had gone off to football camp for the whole day.  After a bit of a lie-in, I turned the television on in my bedroom to see what was on, and to put off having to get up, when I found myself reaching for George’s glasses to help me see the screen more clearly.  The realisation both surprised and delighted me.  I got up quickly, flung some clothes on, and started walking around the house, trying out both the “with” and “without.”  “With” was better every time.  I found his other pair of glasses at the bottom of his school bag, and went back around the house, trying them, and trying both pairs together.  I really couldn’t tell much difference between the two pairs – but both together was definitely too strong.   I was ecstatic:  “the girl with the glasses” was going to be making a comeback.  I was half tempted to try to get my sight test moved forward, but decided that this might be too much of a give-away.  Besides, I had something to look forward to!
+ 
+Late August couldn’t come too soon.  The reminder letters for the sight tests popped through the door sometime in the middle of the month, and a week or so later, we were taken into town.  Whether it was because it was August, or for some other reason, we saw a different optician this time.  Once or twice, she asked George whether he could see better with a new lens or whether it was just smaller and darker.  George always seemed to say that it was smaller and darker, and she took the lens away again.  Apparently, he had experienced another slight change, and now needed -1.25 in both eyes (as I saw on the sheet when we got home).  It stuck in my mind, as that was what Yasmine had needed several years earlier.
+ 
+Then, it was my turn.  This time, there was no need to fake not being able to read the letters at the bottom of the chart.  I couldn’t read them.  It took several changes of lens before I could see them properly, and when I was asked whether a lens made things clearer or just smaller and darker, I couldn’t resist saying that it made them better, so she left the lens in place.  She was actually slightly surprised that I hadn’t said anything to my mum sooner about not being able to see properly, but I pointed out that we had not been at school for several weeks, and that I knew I was going to get my eyes tested, so hadn’t really felt it necessary to say anything.
+ 
+She called my mum back into the room to explain what she had found.  Apparently, my eyes had got quite a lot worse in the last year, and that I now required glasses (again).  Moreover, it might be quite a good idea for me to come back in 6 months, as to wait another year would be too long, if my eyes continued to change at the rate that they had been.
+ 
+“The girl with the glasses” was back!  
+ 
+In the car on the way home, I mentioned that I had been told I should wear my glasses all the time, once I got them.  This caused a bit of a debate with George, as his new prescription was still a bit stronger than mine.  Mum suggested phoning up and asking whether George needed to wear his glasses all the time.  George was adamant that he didn’t, but I managed to settle the debate by saying that it was because my eyes had changed so much – and that was also why I had to go back in 6 months, rather than 12.
+ 
+When I finally went into school, one or two of my older friends commented that “you’re wearing glasses again” and asked why that had happened.  It was while explaining how I had been long-sighted, but now was short-sighted, that I also started to wonder how and why that had happened, and it made me start to think about becoming an optician myself.
+ 
+My six-monthly check revealed no great surprises.  My new -1.50 prescription was to be slightly stronger than George’s, and I would have shifted to annual check-ups, had it not been for Mum suggesting that she’d like to bring both of us in at the same time, so perhaps one more six-monthly check for me, just to make sure my eyes didn’t change too quickly again.  The optician agreed, and at the age of 14, I was wearing -2 glasses, and George had just crept up to -1.50.  As my glasses came in before his, and we were going into town anyway, I took the opportunity to get them then – and then offered to lend him my old pair.  He declined, as they were a little too feminine for him, but I did notice that he did actually wear this new pair from time to time.
+ 
+The next few years held no great surprises.  My eyes continued to get worse by about half a dioptre per year; George never required more than a quarter.  He opted for contact lenses when he turned 17, as he needed to be able to see, but had not really come round to liking his glasses, whereas I always went for new frames – and took advantage of two for one offers when they presented themselves.  I often had one conservative pair, and one slightly more ostentatious one, so that I would still be “the girl with the glasses”, because they stood out, rather than because I was the only one who wore them.
+ 
+…………………………………………………………………………………………………………………………………………………………….
+ 
+“The girl with the glasses, yes.  Juliette Brown, as I was then.”
+ 
+We spent a few minutes catching up, before she explained that she had come in to book sight tests for her 9 year-old twins.
+ 
+My first customers; one boy, one girl.  Was this to be the start of a new saga?
+
+https://vision-and-spex.com/the-girl-with-the-glasses-t1270.html

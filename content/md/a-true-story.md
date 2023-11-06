@@ -1,0 +1,33 @@
+---
+title: A True Story
+author: Specs4Me
+date: '2011-12-28'
+categories:
+  - Specs4Me
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+My Life Of Wishing:
+
+It has been a week now, and I am as confused as I have ever been.  Last Sunday morning I opened up my case, put my plus contact lenses in my eyes, and placed my strong -24D glasses on my nose.  It has been a few weeks since I last wore these glasses, and while I had that ability to do so over the past while, I had not had the inclination.  I suspect that the reason for this was that I knew that I was fueling my addiction, and that I would do exactly what I have done to myself for the last week.  And, I have done it. I have, except for necessary trips to do some normal things, locked myself in my house, and have worn my glasses for anywhere from 12 to 16 hours a day.
+
+My mind knows that this is not what I should be doing, but I can’t stop.  Even when the reality of the situation sets in and I know that it would not be a smart thing to do, my desire is to leave the glasses on, and go to the grocery store, to Wal-Mart or to any other place that I have to do business.  The city I live in is not large, only about 50,000 people.  But I know enough of these people that my chances of going about undetected are very small.  So far I have been able to curb my desires to wander out in public wearing my glasses. I keep telling myself that if I wear my clip on sunglasses no one will spot me, and I do that in the afternoon when I step out on the street to get my mail from the box across the road.  To this point I have been able to hold myself back from that trip to the grocery store.  But it isn’t fair.  Much of the reason for doing what I am doing is so that I can appear in public and interact with people who will either be so clueless about glasses that they will not think a thing about my strong lenses, or who will notice the large amount of cut in, and the depth of the power rings when they glance at the side of my face from a slight angle and realize that this man is seriously short sighted. These few people are the ones I wish to appear amongst.
+
+The last couple of mornings when I got up I decided I would give my eyes a rest from the contacts that day.  However, after walking past a couple of mirrors and glancing at my image, I have not been able to resist putting in my contacts.  Now when I glance at the mirror I see the image that I want to project, an image that I feel comfortable with in my mind.  The other day I chose to wear a new pair of very thick myodisc lensed glasses that I had recently purchased for the entire day. In the evening I was sitting in my chair reading, and the glasses didn’t feel completely comfortable, so I decided some further adjustments were in order.  As I bent the bridge inward to tighten the glasses on my face the bridge snapped and I was left holding 2 pieces of a frame, each containing a lens.  After determining that it would be impossible to solder this frame back together I removed the lenses, consigned the frame to the trash, and took a few minutes to see if I could find another frame I could fit the lenses to.  I didn’t find one without digging deep into my collection, but I am sure I have one I can use.  I only paid about $35.00 for these glasses, so the sense of loss didn’t really bother me, as the lenses were worth that to me. Too bad, because the glasses, which were -25D, worked well with my contacts that I use for my -24D glasses, due to the thick lenses being further from my eyes.
+
+I only have another 6 days that I can continue this way of life.  But I am running out of things I can do to occupy my time, so I might be forced to stop this foolishness.  But while I know it is foolishness I can’t describe the feelings I have when I am going around as a severely myopic person.  When I have my plus contacts in my glasses sit on my nose all day, because, with a -24D prescription there isn’t a thing you can do without wearing them.  To read I pull them slightly away from the bridge of my nose, because my old eyes no longer accommodate as they did when I was younger.  But it is easier to do this than it would be to have a pair of bifocals made – and a lot cheaper as well.  The only time I do take them off is to change glasses, which isn’t going to happen now, because the other glasses I was wearing are no longer.
+
+Oh, and every once in a while I do take them off. I slide them off my nose, and I stare at the absolute blur, with everything in the room dissolving into shapes that would be hard to pick out if I didn’t know what the blobs were.  Then I put the glasses back on my nose and slide them up to the bridge, noticing how everything becomes clear again. But in doing this I realize that this is something I can never actually have in real life.  What I am experiencing is only because they developed contact lenses that allow me the ability to wear thick strong glasses.
+
+I am approaching the age where there is a possibility that I might require lens implants, although I don’t think I have any of the symptoms of having cataracts.  I dream of having my natural lenses replaced, and having them replaced with lenses that would leave me somewhere around a -10D myope.  But then I ask myself how I could explain my desire to the doctor, and then to the people in my real life.  I do work on electronics, and that might give me a possibility to tell people that I wanted to be able to see the very fine wires and circuit boards up close without the need for a strong magnifying glass.  For now I can only dream of this possibility.
+
+So, I suppose I will go on as I have in the past. I will wear my glasses when I feel that the chance of getting caught is low, and even if this means that I have to hide in my house I will continue to do so.  And, when I go on a trip to another city, I will, whenever possible, go as a high myope, and will wear my glasses out in public, which is what I want to do.
+
+Specs4ever
+Jan 2011
+
+https://vision-and-spex.com/a-true-story-t83.html
