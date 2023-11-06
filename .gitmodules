@@ -26,3 +26,6 @@
 	path = themes/blowfish
 	url = https://github.com/nunocoracao/blowfish.git
 	branch = main
+[submodule "themes/xmag"]
+	path = themes/xmag
+	url = https://github.com/yihui/hugo-xmag.git
