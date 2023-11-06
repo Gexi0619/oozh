@@ -29,3 +29,9 @@
 [submodule "themes/xmag"]
 	path = themes/xmag
 	url = https://github.com/yihui/hugo-xmag.git
+[submodule "themes/xmag-hugo"]
+	path = themes/xmag-hugo
+	url = https://github.com/yihui/hugo-xmag.git
+[submodule "themes/hugo-xmag"]
+	path = themes/hugo-xmag
+	url = https://github.com/yihui/hugo-xmag.git
