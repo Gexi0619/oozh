@@ -32,7 +32,7 @@ menu:
 params:
   description: "A website built through Hugo and blogdown."
   footer: "&copy; [Greycat](https://wpa.qq.com/msgrd?v=3&uin=422561659&site=qq&menu=yes) 2023"
-  github_edit: "https://github.com/yihui/hugo-xmag/edit/master/exampleSite/content/"
+  github_edit: "https://github.com/Gexi0619/oozh/tree/master/content/"
   summary_length: 300
   text:
     back: "&larr; 返回主页"
