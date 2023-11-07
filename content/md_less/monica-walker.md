@@ -1,0 +1,184 @@
+---
+title: 'Monica Walker:'
+author: Specs4ever
+date: '2020-09-01'
+categories:
+  - Specs4ever
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+                                                   
+The school where I teach does not have a large enough student body to qualify for a full-time principal as well as an assistant principal. I had been teaching here for the past 3 years, and the woman that had been doing the job of assistant principal had retired the previous spring. I was asked at the beginning of the fall term if I would take on the added duties and although the slight pay increase was gratefully accepted I wasn’t sure if the pay would really compensate me for the extra time the job seemed to be taking. It shouldn’t have been as big a deal as it had turned out to be, but the principal was off on sick leave and the bulk of her workload had fallen on me. Fortunately the school board had now realized that it was not fair to me to be doing triple duty and since the principal’s sick leave looked as if it could be a long term affair they had allowed me to hire a temporary teacher to replace myself in the classroom. On Monday I had interviewed 3 people for this position, and all three were qualified. I could easily have made my decision without taking the time to interview the 4th applicant, but she was scheduled for first thing on Tuesday morning, so there really wasn’t any sense in my not at least meeting with her.  As I came up to the secretary’s desk, she mentioned to me that my 4th applicant was seated in the office waiting for me.
+ 
+It is hard to get an idea of a person’s height when they are sitting so when she stood to shake my hand when I introduced myself to her I was a bit surprised that she was quite tall. I am 6’3” and she had to be over 6’ without heels. She was gorgeous, and that’s the best word I could possibly use to describe her. Her long dark hair cascaded down around her angelic face, her beauty only slightly marred by the glasses she wore on her perfectly shaped nose. They had the appearance of being quite thick and as such were likely very strong.  The lenses looked to be curved in significantly on the front, and the edge thickness had to be around 2.5cm thick at the thickest point. They were one of the strongest pairs of glasses I had ever seen on such a beautiful lady and I had to wonder just how well she could see with them, as I knew that such strong lenses meant that without her glasses her world would be nothing more than a blur of colors and blobs.
+ 
+I conducted the interview as professionally as I possibly could. Ms. Walker had already satisfied the requirements for the job when her application had been checked out by the school board and her hiring was now completely up to me. It was unfortunate for the other 3 applicants, but Ms. Walker had the one thing that interested me more than any of the other applicant’s had. Those thick glasses that rested tight to the bridge of her perfect nose were, as much as anything, what clinched my hiring her.
+ 
+I am attracted to girls who wear glasses. My ex-wife had worn glasses occasionally during our 10 years of marriage, but her -15D glasses did not appear on her face often enough to overcome our marital problems and we finally called it quits before we ended up being enemies. She has since found another husband, and when I go to pick up my son on the weekends that I have custody, my relationship with my ex and her new husband seem to be very cordial. I never see my ex wearing glasses whenever I pick up my son, but I know when we were married she had to always have the thinnest and most expensive lenses she could buy – even though she never wore glasses out in public. The glasses that were worn occasionally by my ex couldn’t hold a candle to the ones worn by Ms. Walker. Her lenses were placed in a fairly small brown tortoiseshell unisex plastic frame. The fronts of the lenses were dished in a lot, and of course the bulk of the power of her prescription was in the rear of the lenses. If the glasses that Ms. Walker wore were a high index plastic, and I had no reason to think that they weren’t, I was probably looking at a prescription that had to be roughly double that of my ex’s.
+ 
+I managed to conduct the interview without indicating to Ms Walker that her glasses were the main reason I was going to offer her the position. I did ask her a couple of questions that I likely shouldn’t have asked if I was to be politically correct. I questioned her briefly on her eyesight, and if there would be any problems in the classroom because of her eyesight.
+ 
+“My visual acuity with contacts is 20/20, and with glasses is right around 20/30. I do not have a driver’s license, but my eye doctor told me I could easily pass the vision exam with either my glasses or my contacts. I spent 5 years teaching in a normal classroom before I had my girls, and during that time I had no problems. Then after my daughters were born, I went back to teaching when the twins were a year old so I can’t see why I should have any issues here in your school.” Ms. Walker responded.
+ 
+“I see you have 3 daughters, one who is 8 and twins that are almost 6 but your application states that you are single. Do you foresee having to take any time off work to look after your children?” I asked.
+ 
+“Other than all three of them take after me in being very nearsighted they are perfectly healthy and are in school full time now. I can’t predict an emergency, but I see no reason at this moment why I should have to miss any teaching days because of my girls.” Ms. Walker replied a little curtly.
+ 
+With that the interview concluded and I told her that she had the job and could start as soon as she possibly could. She replied that she could start that morning, so I took her to my classroom and introduced her to the students. I had my lessons for the day planned, so I turned over the daybook to her and I went back to the principal’s office. This could be a most interesting year.
+ 
+I managed to wade through a lot of the paperwork that had piled up on the principal’s desk during her absence. There were a couple of minor discipline problems that I handled easily, and when the lunch bell rang, I headed for the teacher’s lounge. I spotted Monica walking down the hall towards the lounge and I held the door open for her as she went inside. I introduced her to the teacher’s that were already in the room and everyone seemed quite friendly. I wondered that since I was now likely going to be the long-term principal if I should be fraternizing with the other teacher’s, but I really wanted to be around Monica Walker, so I stayed and ate my lunch with them.
+ 
+I had checked the address that Monica Walker had put on her job application. She lived in the same general area that I did, although she lived a bit closer to the school. If she had lived there for a while, I had passed her street every day for the past 3 years as I drove to school. I did wonder why I had not spotted such a gorgeous looking lady wearing such strong glasses in the various neighborhood stores, but I figured that since she had mentioned contact lenses, she likely had been wearing contacts. I felt that if her contact lenses had not been giving her problems, she would likely have worn contacts to the job interview this morning. I was really glad that she hadn’t as it was her glasses that had gotten her the job. Academically she would have had just as much of a chance as the other 3 applicants’, but I was happy that I didn’t have to make a choice as I might have missed out on choosing her if she hadn’t been wearing glasses.
+ 
+When I left the school that evening, I made a right turn out of the parking lot and drove past the bus stop. Monica was standing there waiting for the bus and I pulled up, put down my passenger window and asked her if she would like a ride. She got in and we headed for her street. Of course, she asked me where I lived and I told her, so she realized that my offering her a ride was just a simple courtesy. I drove her down her street and she pointed out her house, so I dropped her off in front. I asked her if she wanted me to stop by and pick her up in the morning, but she told me that she had to make sure her girls got on the school bus before she caught her bus to work. Rather than make me wait she said she would rather have a few days to make sure the schedule for her girls’ bus was working as well as she hoped it would so she could take me up on my offer at a later date.
+ 
+Monica and I had talked about several things as I drove her home. You can’t really get to know a person in a 30-minute drive, but so far there was nothing about Monica that would make me shy away from getting to know her better. I told her of my failed marriage and divorce, as well as my 11 year old son, but when I asked her about the father of her daughters she just told me that she would rather not talk about him at this time, so I went on to talk about other things. I now knew she was 38 and that she had taught for 5 years before taking time off for the birth of her oldest daughter. Then she had gotten pregnant with the twins before she had a chance to return to work. She had remained at home until the twins were a year old and then she went back to work. Now her oldest was 9, and the twins were going to be 7 within a month and they had just moved here from another city. I also found out that she had an older sister that had been born very premature and had died from a congenital heart condition when she was 12. I had first suspected that possibly Monica had been a premature baby because it often happens that preemie’s are very nearsighted, but I didn’t mention anything because a myopic preemie often has serious vision problems even when wearing glasses and Monica seemed to be able to see very well, even with needing such a strong prescription. Once again, I left that subject alone for the time being as I had found in the past that ladies do not enjoy discussing their visual condition, and my asking her what her prescription is was completely out of the question.
+ 
+I had another teacher call in sick the following morning, so I spent the whole day in his classroom. I had the chance to say hi to Monica in the teacher’s lounge and when I asked her if she would like a ride home after school she smiled and said that would be great. We agreed to meet in the teacher’s lounge right after dismissal.
+ 
+On the way home I asked if she had a sitter she could call on for the kids if she ever went out on a date. Monica said she had not gone out on a real date since her children were born, so I replied that it was about time that she did.
+ 
+“Are you asking me to go on a date with you?” Monica queried.
+ 
+“I am. I was thinking we could go for dinner and then we could go to the 9pm show. Then I could get you home in good time so the babysitter wouldn’t be too late.” I told her.
+ 
+She replied that she would think about it and give me her answer in the morning. She then asked me if I could drop her at the sitter’s so she could walk home with her girls. I told her to get the girls and I would drive them all home. The day care she had for the girls was not a long walk from her house, but by car it was only about 5 minutes, so she agreed.
+ 
+Monica ran in and came out a few minutes later with her 3 girls. They oldest was tall and lanky and I could tell that she was going to take after her mom. The other two girls appeared to be taller than most other 7-year old’s were, so I suspected that they would also take after Monica. All three of her daughters wore glasses that looked identical, both in frame style and color as well as the appearance of the lenses. The rear of the lenses were not exactly myodiscs but the lenses did have the outer edge of the lens flattened off, giving the lenses circles along the temple side of the frame. All three of the girls had flat fronts instead of having the biconcave front that was in Monica’s glasses. The appearance of their glasses left me no doubt that they were going to end up being three attractive but very nearsighted young girls and I again figured that even if they had used the lowest hi index lenses that were available, the 1.67 index lenses would make their glasses close to a -20D.
+ 
+I dropped Monica and the girls off at their house and I went on home to my lonely bachelor existence. I didn’t feel like preparing supper, so I got a frozen prepared meal from the freezer and heated it up. I read for a while, but I couldn’t keep my mind off Monica and her girls. I had asked her if she wanted a ride in the morning and she said she would, as long as I picked her up at the stop where the school bus picked up her girls. That was not a problem for me, and I would have more time to spend with her before school.
+ 
+For the third day that I gave Monica a ride she again wore her glasses. I had suspected that she wouldn’t be wearing them for long, but my curiosity got the better of me and I asked her on the way to school if she ever wore contact lenses.
+ 
+“I used to when I was younger, but I don’t anymore except for special occasions. If my glasses are a problem for you maybe we should forget about going out Saturday night.” Monica replied.
+ 
+“No, your glasses are not a problem for me. I find you look very attractive when you are wearing glasses, and while I suspect that you would look every bit as pretty without them I was just trying to figure out if you would surprise me by wearing contacts sometime.” I said.
+ 
+“Believe it or not, I like wearing glasses. I have worn them almost all my life and I feel very safe and comfortable when my eyes are behind these lenses.” Monica replied.
+ 
+“That’s good to know. Does this mean that we are going out on Saturday?” I asked.
+ 
+“I have arranged a sitter for Saturday night, so if you still want me to go out with you, I am available.” Monica said.
+ 
+“Oh, there is no doubt about me wanting you to go out with me.” I answered.
+ 
+That evening I took Monica to the day care, and then drove her and her 3 girls to their house. As she prepared to get out of the car, she turned to me and asked me if I wanted to stay for supper. Naturally I replied yes.
+ 
+I spent a very enjoyable evening with Monica and her three daughters. The oldest was named Melissa, and the twins, who were 2 years younger were named Grace and Allison. I couldn’t tell the twins apart, and I asked Monica if she could. She answered that she could most of the time, but sometimes they fooled her. The girls went to bed by 9, and I stayed and chatted with Monica until 10 before I headed for home.
+ 
+When I got home, I couldn’t stop thinking about my good fortune. Here I was spending time with a woman that I had previously only dreamed about. Some of my preconceived notions about glasses wearers had already fallen by the wayside. Ellen, my ex, had always played with her glasses when she was wearing them around the house. She would take them off, rub her eyes and then put them back on. They would slip down, and she was always pushing them back up with her right finger at the bottom right of the frame. She would often squint at things and then exclaim “Oh I can’t quite read that. What does it say?” And there was never to be any discussion about her eyesight. She would get very upset if I would even mention that she might need to have her eyes checked again even after she had complained about not being able to see things off in the distance. With Monica and her three girls it seemed that they put their glasses on in the morning and their glasses never left their face all day. They must have had a good optician, because their glasses never seemed to slip, and they never had to push them back up. Possibly this was because their uncorrected vision was much worse than Ellen’s, but I also think that Monica and her daughters had accepted the fact that they needed glasses to see and so they made the best of it. I still hadn’t asked any questions about their prescriptions, but I had gotten the feeling that the subject could be broached at the right time.
+ 
+Friday night I went right home after dropping Monica and the girls off.  I was picking the sitter up and taking her to Monica’s at 6:30 Saturday night, and I had reservations at the restaurant I liked for 7:30. The theater was not very far from the restaurant, so we should not have any problems time wise. We were at the restaurant in plenty of time, and we actually had to wait for our table, but it was only about 10 minutes or less and we had ordered drinks at the bar. The meal was very enjoyable, and I told Monica that her company was what made it so wonderful. That got a blush out of her, which I suspected was hard to do with her dark complexion.  And the movie was one we both enjoyed, so all in all it was a very successful evening.
+ 
+On our way home I asked Monica what they were doing the following day and she told me she had to take the twins to the mall to get them some new clothing. I offered to drive them and then we could go back to her place and order pizza for supper. She took me up on this offer and when I dropped her off, I took the sitter home and went on home myself.
+The next day I picked Monica and the 3 girls up just after lunch and we went over to the mall. The girls had a ball shopping, although they didn’t buy anything more than what they needed.
+ 
+Thanksgiving was coming up soon. I had Josh for the weekend, and we were supposed to go to visit my parents. Monica had mentioned that she would like it if I could come to visit her parents with her and the girls. This was going to be a problem. I wanted to go with Monica and the girls more than I wanted to take Josh to visit his grandparents. But I also wanted to keep up a relationship with my son. The next weekend that I had Josh I mentioned my Thanksgiving logistics’ problem to Josh. Josh had met Monica, Melissa and the twins the first weekend I had him after Monica came on the scene, and I think he sort of fancied Melissa, although most 11 year old boys are not really interested in girls so I can’t be sure. At least he didn’t hate her and not want anything to do with her so that was a good thing. The outcome of our discussions was that Josh was going to come with me to visit Monica’s parents. Then 2 weeks later Josh was going to come to my parents with me.
+ 
+It was a very interesting 4 days. Josh and I stayed in a decent motel not far from Monica’s parents’ house. We did spend a lot of time at the house though and I quite liked Monica’s mom and dad. There were pictures around of Monica and her sister that had died when she was 12 and I could tell that her sister would have also been a very attractive young lady if she had lived.
+ 
+The part that intrigued me though was when Monica’s dad Charlie saw me looking at the pictures of Monica and Alicia. The pictures of the two of them went from Monica being a baby up to the time Alicia died around the age of 12. In all the pictures Alicia was wearing glasses, although Monica didn’t have glasses on until she was around 2 or 3. I mentioned to Charles that Monica got glasses when she was very young.
+ 
+“Oh, that girl! What a struggle Helen and I had with her.  She was only around 2 years old when she put Alicia’s old glasses on for the first time, and from that day on she wouldn’t take them off. She would put up such a fuss when we tried to get the glasses from her that it just seemed easier if we just let her wear them. I told Helen that if she couldn’t see through the strong lenses, she would soon take them off. But she never did. She wore every pair of old glasses that Alicia had grown out of. And even after Alicia died, she wore Alicia’s last pair until we finally took her to an eye doctor and had her eyes tested.” Charlie told me.
+ 
+“How old was Monica when she got her own glasses?” I asked.
+ 
+“I guess she was around 11 or maybe 12. Alicia was 12 when she died, and she was 2 years older than Monica, so I guess Monica wore her old glasses for at least a year, and maybe 2 after that.” Charlie said
+ 
+“Do you remember what your eye doctor said when Monica had her eyes tested for the first time?” I asked.
+ 
+“We just took Monica to a different eye doctor and never let on that she had been wearing her sister’s glasses for the past 10 years. But by then Monica needed much stronger glasses than the last pair that Alicia had worn.” Charlie replied.
+ 
+I was fascinated by the story Charlie had told me. I had always suspected that if a young child wore glasses, no matter what the prescription was, that they would adapt to the prescription in the glasses. But there was also the possibility that Monica could have been very nearsighted and the reason she wanted to wear her sister’s old glasses was because she could actually see better when she was wearing them. There was no way to tell what the truth was in this case. There wasn’t any doubt in my mind that now Monica was very nearsighted and badly needed the glasses she wore. If she had ruined her eyes by wearing her sister’s glasses it was my good fortune. It really made no difference to me if she had ruined her eyes or if she was just very nearsighted naturally. The final outcome was what mattered.
+ 
+After we got back to the city, I dropped Monica and the girls off at their house and I took Josh home.
+ 
+“Did you have a good time this weekend?” I asked.
+ 
+“It was Ok.” Josh replied.
+ 
+“You and Melissa seemed to be having a good time together. Do you like her?” I queried.
+ 
+“She’s pretty decent for a girl. Are you going to marry her mom?”  Josh asked.
+ 
+“I don’t know son. I have only been going out with her for a couple of months. I like Monica a lot so I think I would like to marry her. What do you think?” I questioned.
+ 
+“Mom says you need to get married again, I guess if Monica is the one you want to marry it would be all right with me. And I wouldn’t mind having some sisters.”  Josh told me.
+ 
+The following day when I drove Monica to school, I mentioned that Josh had given me his blessing if I wanted to ask Monica to marry me. She just laughed and asked me whether her thoughts mattered or not. I told her that of course they did but I wasn’t sure if either of us were quite ready for that big a step. And then I asked her about her starting to wear glasses when she was 2 years old. I told her what her dad had told me about her taking a pair of her sister’s old glasses, putting them on and then refusing to let anyone take them off. Finally, when she was 12 years old, she had her first real eye exam.
+ 
+Monica looked at me as if I was crazy.  “There is no way it could have happened like that. I remember when I started wearing glasses. Before that I guess I could not see well enough to walk. I crawled until I was around 2 and got glasses because I could not see where I was walking. You are saying that daddy told you I took an old pair of Alicia’s glasses and that was how I got my first glasses?”
+ 
+“That is what your dad told me. And he also said that by the time Alicia died you had worked your way up through all of Alicia’s old glasses. Then when she died you wore her last pair of glasses until you were 11 or 12 and had your first eye exam. You then got your own glasses, which were quite a bit stronger than the pair of Alicia’s that you were wearing.” I said.
+ 
+“That is almost impossible for me to believe. I remember never wanting to take off my glasses, or even letting anyone else take them off, because without them I saw nothing but a great big blur. But what you are insinuating is that I wore Alicia’s old glasses and they ruined my eyes.” Monica said.
+ 
+“No honey, I am not saying that at all. I am just repeating what your dad told me. I think that you were likely so nearsighted at 2 years of age that you really needed Alicia’s old glasses. Your dad did say that he told your mom that as long as you kept wearing your sister’s old glasses you likely needed them to see, and that you would keep wearing them until you could no longer see with them on. And it looks as if that is what happened.” I told her.
+ 
+“Now that you think that I likely ruined my own eyes, how does that make you feel about me? Would you still ask me to marry you?” Monica asked.
+ 
+“That does not change a thing in my mind. I am starting to feel that I love you very much and that I would like to marry you.” I replied.
+ 
+We had arrived at school, so we had to end the conversation. That night when I drove her home, we did not talk about her eyesight any further. I was going to be around for the following weekend, but the weekend after that I was going to take Josh to visit my parents. I asked Monica if she and the girls would like to go with us, and as I expected she told me she would talk to the girls and would think about it. The next morning as we drove to school, I asked her if she had made a decision, and she said the girls thought it might be fun. I booked 2 motel rooms: a suite with capacity for 4 and another room with 2 beds for Josh and myself. My parent’s house would have accommodated Josh and me, but I didn’t feel that I should leave Monica and the girls alone without transportation in a motel in a strange city.
+ 
+We actually had a very nice visit with my parents. My mom had not liked the fact that Josh’s mom wore strong glasses and I had thought that she might make a comment about Monica’s much stronger looking glasses and obviously worse vision, but she didn’t say a word. It is possible that she had clued into the fact that I was attracted to glasses wearing ladies, but it is more likely that she now realized I would do whatever I wanted to do, and her opinion didn’t mean anything. Booking the 2 motel rooms had also been a good idea because Josh and Melissa spent a bit more time together.
+ 
+Monica’s temporary job contract had initially been until the Christmas holidays. I knew that the principal had recovered and would be coming back to school after New Year’s and I was not looking forward to Monica finding another teaching job at a different school. I was quite enjoying the time I was spending with my very nearsighted lady friend. Fortunately for me one of the younger female teachers was pregnant, and since she had been having a few problems with her pregnancy her doctor had suggested that she should take a long-term sick leave until the baby was due around the Easter break. I immediately made the arrangements to have Monica take this long-term maternity leave for this other teacher. When I told Monica about it, she was pleased, although she was hoping for a full time contract. As I explained to her, there were at least 2 teachers that would be retiring in June, and since she was already part of the staff, she should be a shoe in for a replacement for one of the retiree’s. And I was quite happy. I had become very attached to my very nearsighted girlfriend and her 3 nearsighted daughters.
+ 
+As I had predicted Monica was hired as a replacement for one of the two teachers that had retired, and she was to start full time in the fall. Unfortunately, her pay did not continue on through the summer because she had been temporary the previous year and her new contract did not cover the summer months like it would in future years. But Monica didn’t seem to have a problem with her finances. She had not talked with me about money, nor had she given me any information about the father of her 3 girls, other than to tell me that she had never been married. I assumed that she had lived with the father for some time, but she never seemed to want to discuss him, so I kept my curiosity to myself and didn’t ask any questions.
+ 
+I was not really surprised when Josh came to me and told me he thought that he needed glasses because he couldn’t see distant objects clearly. After all, his mother was pretty nearsighted even if she tried to hide it by wearing contacts all the time. I almost asked him why he didn’t have his mother make him an appointment with her eye doctor, but I realized that he had probably already told her. She likely would have denied that there was anything wrong with Josh’s vision because he could see everything that she could when she was wearing her glasses or contacts.  Her best corrected vision was only around 20/30. I was going to have to be the bad guy in this case.
+ 
+Josh was prescribed glasses, and the prescription was just strong enough that he really should wear them all the time.  A prescription of -1.75D for both eyes is not really earth shattering, however his uncorrected vision was around 20/40 and glasses would really make quite a difference. As I had thought, Ellen was upset to see Josh now wearing glasses, but she didn’t say much.
+ 
+I had an interview with the school board that was a little uncomfortable. They knew that I was going out with Monica, and I was told that while I was being considered for the position of principal either I, or Monica, would need to be transferred to another school. I didn’t want to upset the applecart for Monica, so I volunteered to take a transfer.  It really wasn’t going to make a lot of difference but now I was going to be the principal at the same school Monica’s daughters attended. I could now pick Monica and the girls up in the morning, drop Monica at her school and then go on to my new school. Sure, it would take me a little longer in the morning, but it was very doable, and the girls loved the fact that they would not be taking the bus. 
+ 
+This system worked very well, and we rapidly fell into a routine. I was spending a lot more of my time at Monica’s place and Josh seemed to want to spend more time around me – as long as I was spending time at Monica’s place.  Maybe it was Melissa who was the main attraction for Josh. This was rather unusual for a now 12 year old boy to actually want so spend time with a 10 year old and 2 8 year old girls. But Josh had no interest in sports. He would rather spend his time reading or studying, and since Monica was a piano teacher she was teaching Josh and her 3 girls how to play the piano that she had at her house.
+ 
+Josh had been wearing his glasses all the time ever since he got them about 3 months earlier. I had gotten used to seeing him wearing them and had not given any thought to the fact that the thin lenses he needed would probably get thicker as the years went by. It was a bit if a shock to me when Monica told me that Josh was having a hard time reading the notes from the piano bench. I made Josh another appointment with the same doctor we had previously used, and now Josh’s prescription had more than doubled to -3.75D for both eyes. Ellen was quite upset when she saw Josh wearing his new glasses, but she had a similar progression when she was a young girl, so I think she realized that Josh had inherited her eyes.
+ 
+Josh was the one to break the news to me that his mother was pregnant. Ellen had not wanted to have another child after Josh was born, so this came as quite a surprise to me. She was only 36, so another child should not be a problem for her, but I wondered if this had been a mistake, or if her husband had put a bit of pressure on her. It didn’t really make any difference to me, except that Josh was spending a little more time at my place. Apparently this was because his mom was really bi..chy most of the time now.
+ 
+Josh celebrated his 13th birthday with another eye exam and new, stronger glasses. His just under a year old -3.75D prescription had taken quite a jump and his new glasses were now -6D. Monica and the girls had been with Josh and I when he had gone for his exam and I had suggested that they might also want their eyes examined. But Monica simply told me that their eye care was under control. When the optician suggested that Josh, with his -6D prescription should have hi index lenses Monica told him that the best visual acuity was through 1.48 index regular C39 plastic lenses. The optician sort of looked at her and told her that they were not readily available in prescriptions that were over -5D, but Monica simply told him they were, but only on special order.
+ 
+Now I was really curious. How did Monica know this? Was it possible that her glasses as well as the glasses of her girls were all done in CR39 plastic lenses? If that was the case, then their prescriptions were nowhere near as strong as I thought they were. I asked Monica about this the next time we were alone.
+ 
+“I guess I can’t avoid telling you this any longer. My former boyfriend and the father of my 3 girls is an eye doctor. He is also seriously optically obsessed, to the point where he was attracted to me mostly because of my glasses prescription. He had all our glasses made with the CR39 index plastic because he loved thick glasses.” Monica said.
+ 
+“I kind of understand, as I think I am a bit optically obsessed myself. I like your appearance wearing your glasses a lot.” I replied.
+ 
+‘I know you do, but you very seldom say anything about our glasses, nor do you try to push me to have my eyes examined and to buy me new glasses. You haven’t even asked me what my prescription or the prescription of my girls is.” Monica told me.
+ 
+“I learned from Ellen to keep my mouth shut about her eyesight and her glasses.” I said.
+ 
+“And that is the best thing you could have done. That is why I accepted your marriage proposal last month. But I really must tell you a few things. To start with, my prescription is only around -21D. It is still pretty strong, but nothing as strong as my glasses look. The girls all have prescriptions that are around -17D, and their glasses look much stronger than that. Harry, their dad, would not let us wear any of the high index lenses because he told us that CR39 was much better for our eyes and our vision.” Monica continued.
+ 
+“What happened to cause you to leave him?” I asked.
+ 
+“The final straw was when I found out that he had prescribed glasses for all 3 of our daughters when they were about a year and a half old. I was pregnant with the twins when Melissa got her first glasses, and then when Grace and Allison were about a year and a half, they were prescribed glasses. All the girls started out with a prescription of around -5D and then they increased rapidly until when I left him all three of them were wearing prescriptions of around -17D. Melissa’s glasses are the strongest, and I think she is wearing -17.50D. Grace and Allison are wearing a prescription of -16.50D.” Monica said.
+ 
+“Why did you not want to have eye exams when I suggested it when Josh had his latest eye exam?” I asked.
+ 
+“Because Barry has to provide vision care and glasses for myself and the girls pretty much for as long as I am alive. I have proof that he prescribed stronger glasses than the girls needed at least 3 times. I can’t prove that they didn’t need glasses in the first place, but what I have on him could cause him to lose his license and he would then lose his income. It is not in my best interests to turn him in.” Monica replied.
+ 
+“I can understand that, but how can you trust the man to give you and the girls the proper prescriptions?” I queried.
+ 
+“I told him that any sudden changes in their prescriptions would be met with a second opinion and if he did that all bets are off as far as me not reporting him. I think he will be very careful in the future.” Monica said with a laugh.
+ 
+Monica and I did get married. Josh is now living with us as it was, according to him, impossible to live with his mom and the new baby. Ellen had problems with her eyes during her pregnancy and now for some reason she can’t wear her contacts. Her prescription jumped a bit so her thin glasses are not quite as thin as she would like them. Monica and the girls went back to see their father for their annual eye exams, and no increases were needed. I offered to buy them new glasses, however Monica said that they would wait for another year or a prescription increase, whichever comes first. There will be plenty of time in the future for that.
+ 
+Specs4ever
+July 2019
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+
+https://vision-and-spex.com/monica-walker-t1797.html

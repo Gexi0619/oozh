@@ -1,0 +1,50 @@
+---
+title: Do You See What I See.
+author: Specs4ever
+date: '2011-12-22'
+categories:
+  - Specs4ever
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+Do You See What I See:
+
+Somehow the strains of that old song from the 60’s by Bing Crosby rang in my ears even after mom and I left the grocery store.  Even though it is considered Christmas music and is generally only played around this time, it is appropriate for us all year round.  Oh, I know that the name of the song is Do You Hear What I Hear, and those are indeed the first words of the song, but the next words are “Do you see what I see”, and that is the part I think of the most.
+
+I guided mom to the front seat of the car, and helped her inside. Then I went back and loaded the groceries into the trunk. Dan had slipped into the liquor store to pick up something to have in the house over the holiday, so I got in the back seat behind mom and waited for him.  Dan had been my eyes and my driver since we were married, just like dad and I had been mom’s eyes since she went blind when I was 5.
+
+My mom had a genetic defect which caused her to be very nearsighted.  The doctors called it Degenerative Progressive Myopia, and at the age of 31 she had retinal detachments in both eyes.  The doctors had been unable to reattach her retinas and she was left permanently blind.  I was around 5 at the time, and the same genetic defect had been passed down to me.  I had gotten glasses before my first birthday, and by the age of 5 I had been wearing a prescription of -12D. All my life I had worried that I would also go blind, but I had been very fortunate and although I had just turned 50 I was still able to see.  No, I couldn’t see well enough to drive, and I had to depend on Dan for that and a lot of other things, but I did have around 20/70 vision when I was wearing my -47D biconcave myodiscs.
+
+My eye doctor knew our family history, and had told me that there was not much chance that I would be able to have a child that wasn’t severely nearsighted. My mom’s sister, Aunt Julie had also gone blind when she was in her late 30’s, and had died a couple of years ago. She had not had any children, mainly because she didn’t want to pass the severe myopia that our family had on to her offspring. Mom and dad only had one child and that was me.  Dan and I had talked about our not having children even before we were married. I know Dan had been a little disappointed that we hadn’t had a child, and I know that I had a lot of regrets myself, but for the most part I knew I had done the right thing, and that the genetic defect we had in our family would die with me.
+
+I had been very fortunate in that I had not had a retinal detachment yet.  My doctor seemed to think that the genes that I had inherited from my dad had contributed to that, as dad had very good eyesight right until the time he died. Also, since mom and Aunt Julie had grown up in a different time, before a number of vitamins I was taking had proven to be very good for the health of your eyes, it is possible that these vitamins had been a contributing factor to the fact I could still see my usual 20/70.
+
+Another factor may have been that I did not have any really big jumps in my myopia at any one time. As I said earlier I had a prescription of -12D when I was 5. Until the time I was 13 my prescription increased only about -1D every year, and at 13 I was seeing the world through lenses that were -20D.  For the next 3 years I did experience jumps that were more like -2D per year, and then it settled back down to a more sedate -1D every year. When I was 18, and getting my new prescription of -28D filled I met and fell in love with my optician. Dan was only 20 at the time, but he was doing his practical training at the optical store where I always got my glasses. We dated for about 3 years before we married, and Dan has been my seeing eye guide ever since.
+
+The doctors had hoped that my myopia would stop progressing when I stopped growing. But such was not the case. When Dan and I were married my prescription was -31D, and my visual acuity was only around 20/40.  By the time I was 37 my myopia had seemingly stabilized and my visual acuity had dropped to around 20/70 through my -47D lenses. Now every year when I went back to my ophthalmologist for my checkup I was relieved to hear him say that my existing glasses were as good a prescription as he could give me, and my retina’s were still firmly hooked to my eyeball.
+
+Dan now owned the optical store that he had apprenticed at.  Fortunately the big chain stores with their one hour service had not affected our business much because a lot of people needed more personal and knowledgeable service than the one hour places could provide. If you had, or needed a correction with prism, forget the chains. And if your astigmatism or degree of myopia was high, the chains couldn’t do it well.  And let’s face it, if the only reason you are going to the chain store optical is to get your glasses in an hour you really don’t want to be told that they can’t do a prescription like yours in an hour.  There has also been an increase in people ordering their glasses over the internet.  Dan and I talked it over when internet ordering first came into existence. Dan decided that instead of fighting this phenomenon and hiding his head in the sand like so many other opticians were doing that he would embrace it. Certainly the glasses were cheap, and there was not much of a chance to make any money, but Dan advertised that he was willing to do measurements for and adjust the glasses that people bought on the internet. Sometimes it backfired on him, and he didn’t upsell the customer with another pair of glasses, but more often than not the customer bought a couple of pairs from the internet with Dan’s assistance and then bought a third, more expensive and really good pair from Dan.  He never badmouthed the glasses that were purchased over the net; he just did the measurements and helped the customer fill in the prescription. Then when the customer came back in with their glasses he checked the prescription for his customer and adjusted the glasses for a small fee.
+
+I didn’t really like the fact that my eyesight was as poor as it was, but no matter how poor my visual acuity was it was a lot better than being blind like mom and Aunt Julie. I was able to help Dan out at the store a lot, so it felt like I was helping with our finances a little bit.  Dan had the equipment to make some pairs of glasses in an hour, and I had been taught to use the equipment so I had the ability to make people glasses.  This was a job that I could do even with my lousy eyesight.
+
+Dan was a wonderful husband, and he supported any decision I made.  As I mentioned we had often discussed the possibility of having a child. But I was scared.  There was no possibility that a child of ours would be able to escape the genetic defect that ran in my genes. Sure, there was a chance that maybe the defect might skip a generation and not manifest itself in our child, but then what would happen in the next generation?  Would the defect come back with a vengeance?  Mom was fortunate that she had gone blind, because she was able to get a disability pension. But with my visual acuity being 20/70 I could not get any assistance. If anything happened to Dan I would be in a world of financial hurt, as you need to have your best corrected visual acuity worse than 20/200 before you are considered legally blind.  I suppose I could have faked what I could see, but I didn’t want to do that.
+
+From the time that Dan and I had married we had a wonderful sex life.  At first I used birth control pills, and that was really nice not having to worry about getting pregnant. But then when I was almost 30 we had heard enough bad things about the long term effects of birth control pills that we decided that it would be better for my health if I went off them, and we just watched what we were doing.  That wasn’t nearly as much fun, but over the next 5 years we managed without a pregnancy.  Then I got pregnant, but either unfortunately, or fortunately depending on how you look at it I miscarried.
+
+And that is the crux of the matter.  Did we have the right to bring a child into the world knowing full well that this child would have very poor eyesight, and could end up being a burden on the resources of the state?  Certainly people became burdens on society every day by their poor choices.  But this generates a completely different argument.  Does an obese person have the right to claim a disability pension when their own bad habits place them in the position of being disabled?  Does a drug addict have the right to use the limited government resources for their support?  Should a diabetic be allowed disability when diabetes is a disease caused mostly by poor food choices – and the constant pushing of genetically modified products on an unsuspecting population through television and newspaper ads?  Should a smoker be allowed health care if they develop lung cancer? Where do you make a stand?  
+
+Eventually, as I reached the age of 35 without getting pregnant again Dan and I decided that he would have a vasectomy, as it was getting a little dangerous for me to try to have a child again.  We had more or less chickened out by failing to make a decision, but had instead allowed age to make the decision for us.
+
+Now, as Dan and I drove mom home to her assisted living residence I kept hearing that song in my head, and it made me feel badly that I didn’t have a child of my own to celebrate the season with. We could likely have adopted a child – even a child with poor vision.  But again we had made a choice not to.
+
+Really, I didn’t want to have a child that could see what I saw.  I wanted a child that had perfect eyesight, and since that was not going to ever happen I felt it was better not to have a child at all.
+
+Specs4ever
+Dec 2011
+Written especially for a close friend and former eyescene contributor and also a past editor of my stories
+
+https://vision-and-spex.com/do-you-see-what-i-see-t75.html

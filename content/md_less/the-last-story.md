@@ -1,0 +1,42 @@
+---
+title: 'The Last Story:'
+author: Specs4ever
+date: '2012-10-15'
+categories:
+  - Specs4ever
+tags:
+  - 
+  - 
+thumbnail: 
+description: 
+---
+
+If you are reading this you must be wondering what the title refers to.  Does it mean what it seems to indicate?  I am sorry to say that it does. I have been trying to write enough stories that I can bring out at least 2 new ones every month, but I am now running out of different ways to tell a story.  So, this is going to be my last story, at least the last one that I write with any regularity. I suppose as long as I live I will continue to think up different plots, and twists for stories about myopic ladies in my mind.  However, I no longer plan to sit down and put my stories on paper on a regular basis. I think I have written enough, and it is time for younger writers to carry on.
+
+In order for me to write my last story, I have to finish my first story. In thinking about it this could be harder than it has been for me to write well over 200 other stories.  This first story has been unfinished in my mind for over 51 years, since I was a boy of 16, and a student in high school.
+
+When I was this young boy of 16 my favorite author was a fellow named Henry Gregor Felson. I read 4 books by this author so many times that I actually had to replace the worn out copy of Hot Rod that I owned. The other 3 books I read were from the library, and when I found all 4 books in paperback in a bookstore a few years later, I purchased them all. For years I read and reread Hot Rod, Crash Club, Street Rod, and Ragtop, almost to the point where I could read each book with my eyes closed. For those who do not know this author, and really there is no reason for you to be aware of him, the movie American Graffiti is the closest image that comes to my mind. And the song from the 50’s by Mark Dinning called “Teen Angel” is the song that most reminds me of the stories
+
+These 4 stories were tales of teenaged angst, and all centered around one of the loves of my life at the time.  Yes, at aged 16 I was attracted to cars probably more than I was attracted to girls who wore glasses.  And, now 51 years later, I am still attracted to cars, as well as girls who wear glasses. This proves the old saying is true. “The more things change, the more they remain the same.”
+
+But, as a student in high school, I would sit there while the teacher droned on about things that didn’t really have much interest to me, and I remember trying to write this story in my mind.  Then at home in the evening, while I was supposed to be doing my homework I would sit at my desk, and try to put down on paper the beginnings of a story about a girl who wore glasses. To the best of my recollection the plot was that the hero was a fantastic football player, and all the girls were in love with me.  I had a 56 Mercury convertible, with a continental kit, and the long fender skirts. The car was dropped almost to the ground in the back, and the throaty roar of the dual exhausts when I took off from a stop sign, with gravel spitting from my spinning rear tires made all the young kids look at me with awe and envy.  But the girl that I was attracted to the most was Mary Joan, a petite little lady with honey blond hair, worn long in the back, and with bangs down over her forehead, almost touching the frames of her thick lensed glasses.  Mary Joan worked after school as a waitress at the local lunch counter where everyone hung out. She absolutely hated her glasses, and although her vision was so poor she could barely see to write an order on the order pad without her nose touching the paper she kept her glasses up on her head as much as she possibly could.  Although you really couldn’t tell it, I think Mary Joan was in love with me, and I know I was in love with her.   But we certainly didn’t look to be in love from the way we treated each other. When we dated, or were just riding around together in my car I would always tell her to put her glasses on so she could see what the heck she was doing, and she would get angry with me, and of course she would then refuse to wear her glasses. 
+
+I remember the story developing to the point where she had another eye exam, and her new glasses were so much stronger that she couldn’t see a thing without them if she took them off, so she finally had to wear them on her nose, where I felt they belonged. After that Mary Joan and I began to treat each other more civilly, and I remember that in the story I was writing she went to the big final football game and cheered for me. Then after the game, in which of course I was the hero that got the final touchdown that won the game for the school, we went to the drive inn and saw a movie. After the movie we went to the burger joint. And, now, so many years later I can’t remember if the story ever progressed past that point. I suspect it didn’t.
+
+But as I sit here trying to develop the plot of this story to a point where I might possibly be able to finish it, I realize that there is no way I can finish this story in the world of today. I know too much about myopia, and myopic progression to ever be able to write a simple little tale anymore.  Yes, in a story written today, the characters could be the same, however Mary Joan would have used the money she earned as a waitress to purchase herself a pair of contact lenses. And then the story would die. Oh, maybe not immediately. We could continue writing it up to the point where Mary Joan had over worn her contact lenses so much that finally she was no longer able to wear contacts, and now she was going to have lens implants, or lasik surgery, or even a combination of both, where the lens implants correct the spherical part, and the lasik is used to correct any astigmatism that is left.  So, we would no longer have a heroine who wore thick glasses. And with no thick glasses wearing heroine, well I am afraid that this hero would be checking out stage left.
+
+Another thing has killed any chance of my finishing this story. The cars of today are air bagged so they are very low to the ground both front and rear.  And with front wheel drive, and 4 cylinder engines, the spinning of the front tires doesn’t even look cool. A souped up 4-cylinder engine sounds more like a screaming chain saw than the throaty roar of the old 312 Mercury V 8. What is worse is that most towns and cities have banned cruising. I couldn’t possibly write this story without being able to cruise up and down the main street with rock and roll music blasting from the radio. It just wouldn’t be the same listening to a 50’s station on XM radio, or having the music play through the car FM on my I Pod.
+
+I just can’t do it.  Time and technology have killed any possibility of me writing my first story as my last.  I know too much about today to possibly be able to do it.
+
+I hope that you have enjoyed reading my stories over the past 15 years or so.  I know I have enjoyed writing them for anyone who might have read them.
+
+A warm so long from Specs4ever.
+
+
+A Footnote:
+This story was first written in July 2006. At the time I was convinced that I was out of fresh idea's, and that anything further that I wrote would be a rehash of my older stories.  Fortunately this was not the case, and I was able to write a number of mediocre tales, as well as quite a few really good stories.  I have not completely exhausted my stash of new stories, and I haven't yet decided what I am going to do with them. One friend of mine has suggested that I should publish them in e book format, and we will be looking into the possibility of publishing a book of my remaining short stories in that format.
+Part of the reason for my decision has been the change in Bobby's site to a blog posting format.  I understand why he has done it, as it is more cost effective for him to do it this way. But I liked the old site. I liked the way my stories were posted there, and it was easy for someone to find and read a new one. Now they become part of the general blog.
+Another part of the reason is that I no longer have as much interest in girls with glasses. I have even slowed down a lot on doing GOC. In other words, I have moved on.  I could use the change in Eyescene as an excuse, but I think it is more the fact that it was time.  I am just winding down.
+
+https://vision-and-spex.com/the-last-story-t253.html
