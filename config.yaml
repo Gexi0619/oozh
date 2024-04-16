@@ -1,6 +1,6 @@
 baseurl: "/"
 languageCode: "en-us"
-title: "圈圈中文"
+title: "oo Arch"
 theme: "hugo-xmag"
 googleAnalytics: ""
 disqusShortname: ""
@@ -9,23 +9,23 @@ preserveTaxonomyNames: true
 footnotereturnlinkcontents: "↩"
 hasCJKLanguage: true
 enableEmoji: true
-paginate: 6
+paginate: 30
 
 permalinks:
   post: "/post/:year/:month/:day/:slug/"
 
 menu:
   main:
-    - name: 主页
+    - name: Home
       url: ""
       weight: 1
-    - name: 按作者
+    - name: Authors
       url: categories/
       weight: 2
-    - name: 按标签
+    - name: Tags
       url: tags/
       weight: 3
-    - name: 关于
+    - name: About
       url: about/
       weight: 4
 
@@ -35,8 +35,8 @@ params:
   github_edit: "https://github.com/Gexi0619/oozh/tree/master/content/"
   summary_length: 300
   text:
-    back: "&larr; 返回主页"
-    edit: "编辑页面 &rarr;"
+    back: "&larr; Back to Home"
+    edit: "Edit this page &rarr;"
     truncated: "&hellip;"
 
 markup:

@@ -47,4 +47,50 @@ I opened my mouth and then she was gone.
 
 ... to be continued
 
+
+
+I was standing at the window watching Albina crossing the street. When Johann, my masseur knocked the door and came to my office. His face was one big surprise.
+ 
+“Ahmed, what was it? I met an alien in de corridor!” he said.
+ 
+“Well, Johann, this is our new colleague.” I answered looking at my hand. It still felt warm and rather tingling.
+ 
+“What?” said Johann, “She looks like… like a… a…”
+ 
+“Yes, she looks like an alien.” I nodded. And she feels like an enchantress, I thought.
+ 
+“Is she blind? She had a white cane.”
+ 
+“Well, she is visually impaired. Obviously. And I obliged to employ a disabled person, because I received the subsidy when I started a year ago. There are 5 days left to the dead line. And she is the only applicant for the job who is disabled.” I explained.
+ 
+“Mein Gott!” Johann sat down with a cup of coffee in his hand.
+ 
+“What will de customers think about her?” he asked the same question I had in my mind.
+ 
+“Many people in our job are visually impaired or blind.” I said.
+ 
+“Well, yeah,” said Johann, “but she is ehm… you know.”
+ 
+We were staring at one another for a moment. I knew what he meant. I knew what he was hesitant to say loud. I knew I was the boss and I had made my decision.
+ 
+“Johann,” I started slowly, “you are a German, our receptionist Olga is Ukrainian, and I am a son of Syrian immigrants. You have an accent, Olga has an accent, and I have an accent, too. We are three strangers in the middle of the sea of Czechs. I want to give this lady a chance to become one of us. She has a Czech surname, no accent, and she is the only applicant. Besides, we are running of time.”
+ 
+“But the glasses.” blurted Johann.
+ 
+“I wear glasses and you wear glasses, too.” I said.
+
+“Yeah, I have 12 dioptres, but she's got military binoculars on her nose.”
+ 
+I decided to ease the atmosphere: “Yes, that is a problem. If they fall on a client, they will break his ribs.”
+ 
+Johann burst out laughing and spilt the coffee on his trousers.
+ 
+I took out a bottle of moonshine vodka Olga had given me and poured two shot glasses.
+ 
+“Either she saves this business or she ruins it. Na zdraví!”
+ 
+We had another shot and called it a day.
+
+... to be continued
+
 https://vision-and-spex.com/albina-t1163.html

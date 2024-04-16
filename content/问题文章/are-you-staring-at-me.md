@@ -62,4 +62,44 @@ Well I don t need an eye exam, I can see perfect.
 
 Part 2 to follow.
 
+
+
+Part 2
+Megan enjoyed Kevin s company, he was pleasant , good looking, and well behaved.
+She also had a suspicion that Kevin s vision was not as good as he thought it was. so she put her old glasses in her purse , just in case she might have to prove to him that his vision was not perfect.
+When they went to the movie, Kevin asked Megan where she would like to sit.
+I prefer to sit in the back, is that all right with you?
+Yes that is fine with me.
+After the movie had started , Kevin mentioned to Megan , that he did not think the picture waas not as sharp as usual.
+When did you see your last movie?
+About 6 months ago.
+I think the picture looks nice and sharp, of course I wear glasses.
+Do you think my eyesight is not as good as it was?
+Well that is possible, would you like to try my glasses?
+I never tried glasses, perhaps I should try them.
+Here they are.
+These glasses are to strong for me.
+Here try these , and handed Kevin her old glasses
+
+Holy Moses, I can see everything, yes the picture is nice and clear, I can't believe it.
+Well I think you need glasses, but you can wear my old ones and enjoy the movie.
+When the movie was finished Kevin gave Megan her old glasses back, thank you they sure made a big difference.
+I guess I need glasses, but I hate the thought of it , I most likely look like a dork wearing them.
+I don't think so, come with me and I will show you.
+Megan took Kevin to the optical shop, and asked the optician if they could try some different frames.
+Megan picked out some frames that she thought would look good and when Kevin tried them and looked at himself , had to agree he looked pretty good in some of the frames
+When they returned home , Kevin s mother was outside.
+Did you have a good time , yes we did said Megan, the movie was good and we also found out that Kevin needs an eye exam, ha had some trouble seeing the movie.
+Are you sure ?
+Yes mom when wearing Megan's old glasses I could see everything nice and clear.
+Well we have to make an appointment to get your eyes checked,
+
+At the eye exam Kevin was prescribed glasses.
+With Megan and his mother's credit card they went to the optical store, selected a frame, and were told to come back in about an hour and the glasses would be ready.
+When they went back , the glasses were ready, and when Kevin put them noticed a big improvement in his vision, he realizes he noticed things he had never noticed before.
+When he looked in the mirror liked his new look. They went to the food court for a drink.
+Megan sat there with a big smile on her face and looked at him,
+Are you staring at me?
+Yes I am , you look fantastic wearing glasses , I love your new look,
+
 https://vision-and-spex.com/are-you-staring-at-me-t584.html
