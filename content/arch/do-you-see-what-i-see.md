@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's journey living with nearsightedness and caring for her blind mother.
 ---
-
 Do You See What I See:
 
 Somehow the strains of that old song from the 60’s by Bing Crosby rang in my ears even after mom and I left the grocery store.  Even though it is considered Christmas music and is generally only played around this time, it is appropriate for us all year round.  Oh, I know that the name of the song is Do You Hear What I Hear, and those are indeed the first words of the song, but the next words are “Do you see what I see”, and that is the part I think of the most.

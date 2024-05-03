@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teenage girl with an eyepatch is questioned by police about a murder, revealing her unique perspective.
 ---
-
 Here's again a short story about a high hyperope girl with an eyepatch. Enjoy 
 
 
@@ -32,6 +30,6 @@ My face went pale and I felt hot and cold at the same time. My hands were shakin
 
 I sat down next to Henry while the adults kept on talking. “Mary got killed”, I said silently. Henry nodded. “I already heard about that. It’s so awful. Who did this?” “William”, I said. Henry sighed. “Sooner or later something like this had to happen.” I made a face, then I started pulling off the adhesive eyepatch. When I readjusted my glasses, Henry looked at me. “Put it back on”, he smirked, moving his eyes in a funny way. “I’m just about to go to bed!” I protested. “I don’t need it there!” “Goodbye, see you tomorrow”, I heard Mrs. Mann’s voice, and I saw Officer Chapman waving his hand. 
 I put the patch on my right eye again, then I got up and went upstairs again. I smiled. The patch had been a very good thing today.
- 
+
 
 https://vision-and-spex.com/the-one-eyed-witness-t1811.html

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a story of self-discovery and young love, Katie and Ashley embrace their attraction to girls who wear glasses.
 ---
-
 The Girls  [ Lesbian story ]
 
 Chapter 1

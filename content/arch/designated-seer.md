@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Designated Seer follows Sara, a young woman with thick glasses, as she navigates love and friendship in a nightclub.
 ---
-
 ---------------------
 Designated Seer
 ---------------------

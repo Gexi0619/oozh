@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man becomes captivated by a woman's outdated glasses, sparking a chance encounter and possible connection.
 ---
-
 Here is a very short little story that I wrote over lunchtime - actually I sat down with the idea of having lunch, wearing a pair of -20's as GOC, and as the bottom of the old frames rubbed on my cheek I had the idea for this story. I hope you enjoy it as it is not my usual format.And now I can eat my lunch.                                       
  
 I noticed her as she walked through the doorway into the restaurant. Glasses, outdated by about 5 or 6 years, fairly strong prescription; coat, not threadbare, but definitely worn and almost on its last legs; figure quite acceptable, but her curves were mostly hidden by the coat. Hair showing signs of grey streaks, worn tied back into a pony tail; likely ready to be shorn to a much shorter and more age appropriate style. Going by her appearance she was a lady I wouldn’t mind getting to know better if I had the chance.

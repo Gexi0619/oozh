@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a search for the perfect girl, a high school quarterback realizes his aversion to glasses may be misguided.
 ---
-
 Why do so many nice girls, wear glasses now?
 
 

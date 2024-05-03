@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A childhood infatuation turns into a whirlwind romance at a birthday party, leaving the protagonist mesmerized.
 ---
-
 An Optical Gift
 This story is purely fictional, any characters names, situations, events and problems described are purely coincidental.
 

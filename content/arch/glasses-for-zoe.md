@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A dedicated teacher forms a special bond with a remarkable student, but an unexpected obstacle arises.
 ---
-
 My name is Lydia. I have always needed medium strong plus glasses to correct some hyperopia I developed when I was a child. My prescription never got any higher than +1.5 in my right and +3 in my left eye. Sometimes I was a bit sad about not needing a higher correction, but then again it felt good to be able to see at least a bit without glasses. I have to admit that I own a lot of different glasses, among them are some very strong plus glasses. I ordered them online. And yes, sometimes I enjoy wearing them for reading, pretending that my eyes are so bad that I have to literally stick my nose between the pages to recognize something. Sometimes it even is enough for me to just see those strong glasses, draped neatly on an open book, to make me feel very special. These small round glasses, with lenses about 1 cm thick, with 10 or 11 or even 12 diopters – I have them all - are my secret dream.
  
 To promote a cliché, I work as a teacher – mathematics, physics and chemistry. I am not married and don’t have children, and I’m not planning to change this. Of course I have hobbies like going to the cinema or do some sports, but some years ago I started to do private coaching after school. I know how to teach things, it is fun, and the extra money is nice. And there are a lot of children who need some extra lessons, especially in math. So there are many children who visit me in the afternoons. As I don’t live in the city, most of them are brought by their parents and collected again one hour later. Only one girl, Zoe, always came by bike, although she lives as far away as the others.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Alexia and her best friend Nikki's friendship is tested when Nikki falls for Alexia's brother.
 ---
-
 Hello, this story has sexual content. I would love some feedback on it, excuse me if the grammar isn't perfect I'm not an English native. Hope you Enjoy! 
 
 ........................................................................................................................................................................................

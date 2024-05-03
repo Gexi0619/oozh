@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Brandon, I think I heard something, I am sure there are some people around. Well, there's no use worrying about it now. Let's just enjoy our picnic and fishing.
 ---
-
 I am the youngest in our family, my name is Logan.
 Believe it or not, I know quite a bit about vision, because every one in our family except me wears glasses.
 My parents, and my two older sisters, all wear glasses for myopia.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A young girl's desire to wear glasses leads her on a journey of collecting and embracing her newfound vision."
 ---
-
 The collector
 
 

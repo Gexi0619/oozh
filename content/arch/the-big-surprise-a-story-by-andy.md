@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Unlucky protagonist wins last-minute cruise, but must share suite with unexpected roommate, leading to uncertain adventure.
 ---
-
-                                     
 After a long stretch of bad luck, a little good luck finally decided to grace me with its presence. I have had several things go wrong lately and when I bid on an auction for a cruise on eBay all I had to pay was for the incidentals so I could afford a last minute cruise to the Caribbean. I had bid, hitting the buy it now button, and while I didn’t expect the seller to take my bid, what I had offered was a sum that I could pay. If I got the cruise ticket it would be for such a low price, I could not afford to let it pass me by. Much to my surprise I was the winner and the ticket for the Caribbean cruise was going to be in the morning mail. I would wait for the ticket to arrive, and it was going to take me less than an hour to pack my suitcase so I could leave early the following morning.
 
 The next morning arrived and I moved out of my condo to be ready for the early morning flight to Florida where the cruise was going to start. And yes, I said moved out, because my rent for the next month was due, and my choices were to either take the cruise or be homeless because the price of the cruise ticket plus some spending money was all I had left to my name. I didn’t have quite enough for my rent, and things had gone so poorly for me over the past month I would have been out on the street. A couple of hours later I was boarding the cruise liner. “Hello Mr. Peters” the hostess at the help desk greeted me. She checked the computer and said: “ Mr. Peters you bought your ticket out one of our auctions on eBay. Your ticket is valid so don’t worry. We place tickets we are unable to sell in time out to auctions on eBay and you were lucky enough to win one of our smaller suites aboard our ship. Although, at the moment we have a small problem, and you could help us out if you don’t mind”. “ What’s the problem,” I asked her”. “ Well Mr. Peters only this morning we realized that we are slightly overbooked due to a computer failure” she said. “Does this mean I can’t have the suite” I asked her. “ No Mr. Peters, but would you mind sharing the suite with another person?” she asked me, continuing to say: “ You would only have to share the bathroom as these suites are designed to be separate cabins for sleeping and we often put another bed in the living room if there are couples traveling together.” 

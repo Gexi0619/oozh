@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A granddaughter inherits her grandmother's vanity full of glasses, leading to a newfound connection and shared passion.
 ---
-
 It was a sad day. After grandma s burial, the whole family was  gathered at grandma s house ,
 where a lawyer was waiting to read grandma s will.
 When he started read;

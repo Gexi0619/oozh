@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A mysterious series of events unfold as more and more people in Joanne's life start wearing glasses.
 ---
-
 I, should not have done it.! 
 
 

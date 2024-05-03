@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: as the embodiment of beauty with her stunning glasses and captivating presence. The next day, as we embarked on our picnic adventure, little did I know that this would be a life-changing experience.
 ---
-
 This story contains adult content, so if you are underage or easily offended, please do not read any further.
 
 Continuing my recollections of true events which have happened to me over the years, this must surely rate as my all-time favourite glasses moment. It is still so vivid in my mind, and it always gives me enormous pleasure to relive it in my mind, and sometimes dream about it if I'm lucky. This is the first time I have written it down, and it is such an intense story and still so real to me that I only hope I can do it justice. You, the dear reader, will be the judge.

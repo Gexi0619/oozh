@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Isabelle finds her friend's mother getting rid of her daughter's old glasses, sparking curiosity and mystery.
 ---
-
 Isabelle Weatherby was a looking forward to starting secondary school.  It marked the next stage of growing up, and it opened new horizons for her.  A keen actress, she was looking forward to the drama lessons she would be learning, and to getting the chance to perform in front of a “proper” audience.
 
 All that, however, was tomorrow.  She had just returned from a two-week holiday in Tenerife with her family, and needed to make sure she had everything she required for her new school.  Her mother had given her £20 to go into town and buy whatever was necessary.  She had a list of equipment to buy, and an internet search had given her some idea of prices, but she was still looking forward to being able to choose things for herself, rather than just accepting what she was given.

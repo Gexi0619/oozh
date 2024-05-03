@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A myopic person faces a blurry day without their glasses, realizing the importance of clear vision.
 ---
-
 The chat gpt is big on anti-harassment rules and doesn’t want to write glasses fiction. However, I convinced it to once I said to “keep it pg” here are the results. 
 
 Once upon a time, there was a person who woke up one morning, ready to start their day. They grabbed their bag, keys, and phone, but as they walked out the door, they realized they had forgotten something important. Their thick myopic glasses were sitting on the nightstand, right where they had left them the night before.

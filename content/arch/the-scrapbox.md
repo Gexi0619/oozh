@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy discovers his aunt's collection of glasses and is reluctantly forced to wear them.
 ---
-
 At about age ten i stayed like many times before for a weekend with my aunt Rita. She lived alone, worked as a officemanager and as long as I can remember she wears glasses. I liked her very much and I think, she enjoyed my company as well. 
 Because of the bad weather we did some construction on a longterm project, a model- castle with all kinds of figures and other details. 
 For this we needed some wooden matches and Rita told me to get them from the  bathroomdrawer.

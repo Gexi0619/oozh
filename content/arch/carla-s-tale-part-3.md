@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Carla is offered a lucrative opportunity to be the face of a company, but things take a questionable turn.
 ---
-
 Carla’s Tale – Part 3
 
 Please make sure you have read Carla’s Tale Parts 1 and 2 before reading this.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jordan's identity crisis escalates when he loses his last contact lens, forcing him to embrace a new look with glasses.
 ---
-
 About 18 months ago, I wrote the story Jordan's 30th. Over the last couple of weeks have wanted to write something and so decided to look at my past stories. I realized that Jordan's 30th just scratched the surface of what i could do with the character. So I present to you both the original story for those who missed it the 1st time, and Part 2. Further parts will be coming just when is to be determined:) Also decided since I was writing about Jordan, only fitting if I wore my bifocals when writing it (a smidge different view in the bottom for me too:) )
 
 He looked down into the sink and squinted at the sight. His last right contact lens, now torn and sitting along the edge of the basin. A tear began to form along Jordan’s face as he looked longingly at the torn lens.

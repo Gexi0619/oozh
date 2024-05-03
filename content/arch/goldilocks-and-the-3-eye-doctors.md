@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: My name is Goldilocks and this is my story of resilience, sacrifice, and discovering a new world through glasses.
 ---
-
 My name is Goldilocks and this is my story.
 
 When I was 16 my father left my mother,he had found another woman.

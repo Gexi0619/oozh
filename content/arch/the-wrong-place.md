@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A police constable loses her sight after a chemical accident, forcing her to confront a blurry new reality.
 ---
-
 ----------------------
 The Wrong Place
 ----------------------

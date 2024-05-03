@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's fascination with glasses leads her to try them on and experience improved vision.
 ---
-
 My introduction to wearing glasses [x]
 
 

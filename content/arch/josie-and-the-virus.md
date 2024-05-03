@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a small town, a boy navigates high school and reunion with a changed classmate after a pandemic.
 ---
-
- 
 The year I was 15 I was in grade 10 at Holy Cross High. You had to be 15 anytime after January first to be in 10th grade, and I was one of the oldest kids in my class, as I would be turning 16 the 2cnd of February the following year. When school started, we had a number of students that had come from 2 other Junior High’s, but I knew most of them from playing sports against the other 2 schools. There was one girl that I had never seen before, and while I didn’t have a lot of interest in girls yet, she was a very nice person to talk to. Her name was Josie and she was in my home room and was also in most of my classes.
  
 Josie was not heavy but was big boned and she had a fairly large head. She certainly wasn’t fat, but she did have substantial breasts and a lot of the guys went on and on about how they would like to put their head between her boobs. She didn’t wear glasses, but she did have a pair of glasses that she seemed to need to put on whenever she was reading or doing close work. I thought that only old people wore glasses for reading, but with Josie it seemed as if this wasn’t always the case. I rather liked the appearance of girls wearing glasses, but Josie’s lenses didn’t do much for me as they magnified her eyes and I liked the other type that most of the girls I knew wore. 

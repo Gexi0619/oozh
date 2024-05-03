@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the untold story of Wanda Tallent, a fearless female racer who defied all odds on and off the track.
 ---
-
 This is a true story from what I've read in a fine book called Forty Years of Stock Car Racing Volume 2 by Greg Fielden.
 Hickory Speedway in Hickory North Carolina is a legendary track that like so many tracks started out as dirt in 1951 and then was paved for the for the 1967 season. The track started out as a 1/2 mile dirt track and after being reconfigured a couple of times is now a 3/8 mile track.
 Ralph Earnhardt Father of Dale and Grandfather of Dale Jr. won 5 track championships there in the early days of the track. NASCAR  Hall of Famer was a track champion and won 7 premier NASCAR series races there. Nascar Hall of Famers who raced at Hickory  in addition to Johnson and Dale Earnhardt were Ned and Dale Jarrett. Premier series Morgan Shepard and Harry Gant raced there as well in their days of racing.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kirsty finds happiness with her speccy boyfriend Ed, but faces the secrets surrounding her sister's disappearance.
 ---
-
 ----------------
 Dear Diary IV
 ----------------

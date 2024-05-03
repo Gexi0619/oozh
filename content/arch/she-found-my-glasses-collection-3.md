@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the captivating journey of a young boy who embraces wearing glasses and starts a unique glasses collection.
 ---
-
 She found my glasses collection. #3
 
 

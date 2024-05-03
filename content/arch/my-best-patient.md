@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this gripping story, an optometrist goes against protocol in order to help a young girl with her vision, but faces the consequences.
 ---
-
 As I stood behind the counter at the optical store where I work as both the optometrist, and the optician when needed, I watched the young 13 or 14 year old girl as she came through the door with what I assumed was her mother. It wasn’t hard to tell why they were here, as the myopic squint on the girls face gave it all away.
 
 “May I help you?” I asked.

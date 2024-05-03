@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When a young girl's eyesight begins to deteriorate, she must overcome her mother's skepticism to get glasses.
 ---
-
-                            
- When my mother was 19, she and my father, who was 2 years older, were married. My birth followed within a couple of months, and then less than 2 years later my sister was born after the normal 9 month gestation period. Life was pretty uneventful until I was almost 12 and in grade 6. My sister was 10 now, and in fourth grade, and that is when she started to complain to me that she couldn’t see stuff very well. I suggested that she should tell Mom, but she was afraid to do that. Alecia made me promise not to tell our parents, and then she didn’t say anything more to me either. But I did notice that she never came into the family room to watch the television anymore. She spent most of her time in her bedroom reading her books on her kindle, but she told our parents that she was doing schoolwork.
+When my mother was 19, she and my father, who was 2 years older, were married. My birth followed within a couple of months, and then less than 2 years later my sister was born after the normal 9 month gestation period. Life was pretty uneventful until I was almost 12 and in grade 6. My sister was 10 now, and in fourth grade, and that is when she started to complain to me that she couldn’t see stuff very well. I suggested that she should tell Mom, but she was afraid to do that. Alecia made me promise not to tell our parents, and then she didn’t say anything more to me either. But I did notice that she never came into the family room to watch the television anymore. She spent most of her time in her bedroom reading her books on her kindle, but she told our parents that she was doing schoolwork.
  
 One day we were walking home from school and when she almost started into the intersection when the walk signal was flashing 3 seconds, I asked her what she was doing. That is when I realized that her eyesight was really quite poor, as she told me she thought it said 8 seconds. I told her then that if she didn’t tell our parents about her poor eyesight, I would.
  

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "In a twist of fate, a man's expectations of his new nurse are shattered when he meets Anne."
 ---
-
 I am Andrews brother.
 
 I had been in Hospital for 3 months recovering from a car crash,the time had gone so slowly,

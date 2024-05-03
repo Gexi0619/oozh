@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the unexpected allure of glasses as Jessie navigates love, friendship, and personal style in high school.
 ---
-
 I am glad he likes the looks of glasses.
 
 

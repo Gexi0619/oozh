@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Lance, a 22-year-old with a mysterious past, finally gets off high-risk car insurance after three years. Find out why.
 ---
-
 22 Year old Lance has just gotten off high risk car insurance after 3 years of being on it. While it is not unusual for a 22 year old to be on high risk car insurance Lance got on it in a most unusual. way but first the back story.
 Lance was born April 3rd 1997 in Alton Indiana. That date happens to be the anniversary of one of it not the worst tornado outbreaks ever. Alton is a small town in Crawford county which is listed on some lists as the 3rd poorest county in the state. Alton sits right where the Little Blue River meets the Ohio and over the years some interesting things have taken place. Alton at least at one time had an Indian and festival dedicated to Native Americans. Alton does have a boat ramp and in the 80's it was used as an access point for fire fighters for a barge fire on the Ohio River. The town which has been flooded before at least at one time had a vacation home built on stilts. I don't know if the house, museum or the festival still go on as I haven't been there in over 30 years. In the 80's there were several lots purchased and used as fishing camps including my parents.
 Lance's parents both work in Corydon, Dad is a sales manger at a large GM dealership and Mom is an insurance agent. By Crawford county standards the family is well off. Both parents born and raised in Alton still live there by choice. The couple have 2 kids besides Lance, Brooke now 24 and married living out of state. Brad now 18 a senior in high school looking at colleges leaning towards Indiana University Southeast in New Albany excited about living in the dorms in a bigger city.

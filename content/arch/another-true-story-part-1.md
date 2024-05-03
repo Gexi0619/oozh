@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discovering the world through borrowed glasses, a young boy embarks on a journey to understand his vision problems.
 ---
-
 This is my life as much as a I can remember about me finding out I needed glasses, and what happened after.
 
 As long as I could remember, I'd had to make/force my eyes to focus on close things.  Distance was the same way, but it wasn't as blurry as close things were.  I was used to doing it, so I thought it was normal.  I didn't know I had a vision problem until I put on my Dad's glasses. 

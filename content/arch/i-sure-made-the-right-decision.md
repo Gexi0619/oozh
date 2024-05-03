@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Young Jodi, torn between farm life and city dreams, discovers the power of glasses and her true passion.
 ---
-
 I, made the right decision.
 
 

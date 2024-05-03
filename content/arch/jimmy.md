@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Discover how glasses transformed Jimmy's game and improved his vision, leading to newfound confidence and success."
 ---
-
 Jimmy was a regular 10 year old who loved sports and was a good student.
 The baseball season was just starting and Jimmy loved playing ball, he was a better than average hitter and outfielder.
 The night of their first game his parents and neighbor came to watch him play.

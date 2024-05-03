@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: High school student Greg discovers the transformative power of glasses, thanks to his crush Lindsay's influence.
 ---
-
 Greg was in high school , a good student and a regular guy who always had an eye for pretty girls.
 To day he noticed that Lindsay , one of his class mates , a cute girl with lovely long black hair, came to school wearing glasses.
 

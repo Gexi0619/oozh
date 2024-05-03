@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "The gripping journey of a nearsighted individual's relationship with glasses, contacts, and self-image. A relatable tale for optic enthusiasts."
 ---
-
 The following is an account of the many eyeglasses I wore as my eyes grew more nearsighted with age.  All measurements were verified since I still have every pair.  Looking through many different lenses over the years has helped me learn a lot about myself and the world we live in.  Perhaps you can relate to some of these chapters too if you are optically obsessed.  
 
 Chapter 1 – Glasses

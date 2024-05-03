@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Unexpected inheritance leads to a peculiar love interest with a secretary who mystifies with her appearance.
 ---
-
 A couple of years ago my aunt, who was also my godmother, passed away.  I had not expected to receive anything from her, as she was a woman of modest means and she had lived long enough after my uncle had died that I thought she likely would have exhausted most of her income.  I was surprised to receive a letter in the mail from a firm of solicitors a few months later.  The letter explained that my aunt had left a bequest for me in her will, and asked me if I could call their offices to set up an appointment.
 
 Figuring that it wasn't a big deal I waited a couple of days until I had a chance to make the call without it interfering with my work day.  The phone was answered by a lady with an extremely pleasant sounding voice, and of course my mind wandered to thoughts of how this lady looked.  My biggest fantasy about women is that they wear glasses, but there are very few ladies that have decent prescriptions that do wear glasses these days.   I set up an appointment to see my aunt's lawyer in 3 days time, and I went back to work, promptly forgetting the secretary with the really pleasant sounding voice.

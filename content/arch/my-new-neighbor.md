@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter with new neighbors uncovers a lack of understanding about vision problems and glasses.
 ---
-
 My new neighbor
 
  Glasses wearing John and I [Kate] have a lovely growing family.

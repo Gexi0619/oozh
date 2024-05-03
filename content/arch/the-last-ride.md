@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a world of automated transportation, an old man defies the government to rebuild his beloved motorcycle.
 ---
-
 The old man walked slowly, but with a purpose, between the many boxes piled in the vacant room that used to be used as a garage.  All cars had been banned from the highways a number of years ago, and all forms of transportation were done by pods that held 2 or 4 people and ran on a cushion of air between the pod and the road surface. These pods were computer controlled and traveled within inches of other pods that were travelling in the same direction. Most trips were done within the city, so the need for large pods had been eliminated for travel within the city, and the only time a 6 or 8 passenger pod was used was for travel between nearby cities.  The Interstate 4 lane highways that had been built in the 50’s 60’s and 70’s had fallen into disrepair, and fortunately with the pods travelling on a cushion of air between them and the pavement the condition of the pavement no longer mattered much. The only time the government had to repair a road now was if the pavement surface started to crumble because the downward blast of air created by the pods rotors would send clouds of dust into the air if the road had turned to gravel.  But because the traffic did not impact the roads surface the same way that the old time vehicles with tires had most roads were projected to last for a long time without spending money to repair them.
 
 The parts in the boxes that the old man was walking through were many of the parts he would require to reassemble his 1978 Harley Davidson Duo Glide motorcycle. When the driverless pod method of moving people had been perfected all non-self-driving vehicles had been ordered off the road and destroyed.  Government inspectors had been dispatched to check all the garages, and any vehicle that was not in a museum had to be either rendered immobile, or destroyed. By now there weren’t even any gasoline stations available to fuel one of these old vehicles anyway and the only gasoline you could buy was to operate emergency generators or the odd gas powered lawnmower, but it was only dispensed in 4 liter sealed cans and only with a permit.. 

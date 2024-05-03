@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: As Kevin's reign of bullying continues, a high school student named Morty becomes his next target.
 ---
-
 Chapter 1
 
 As the cool autumn breeze rustled through the colorful leaves on the trees, a group of high school students strolled through the campus. The sound of laughter and chattering filled the air.

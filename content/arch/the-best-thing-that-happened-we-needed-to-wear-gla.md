@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: After trying on her coworker's glasses, Jenny realizes she may need glasses too and gets an eye exam.
 ---
-
 Jenny had graduated with a degree in law.
 She was a very attractive brunette, had a nice figure, great personality and was well liked.
 After graduation she started to work at a small law firm , in a medium sized city. She liked the firm she worked for , and the people

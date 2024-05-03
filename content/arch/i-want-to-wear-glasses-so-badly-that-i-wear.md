@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Desperate to wear glasses like her family, a girl resorts to fake ones - until she meets Kevin.
 ---
-
 I want to wear glasses so badly, that I wear ......
 
 

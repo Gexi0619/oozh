@@ -1,5 +1,5 @@
 ---
-title: #JustARegularDay Part. I
+title: "JustARegularDay Part. I"
 author: Nicole Way
 date: '2023-01-30'
 categories:
@@ -7,11 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A wealthy guy confronts a girl angry with his Instagram posts, leading to an eye-opening revelation.
 ---
-
-  I have been lucky enough to grow up in a wealthy family, but I didn’t know I was wealthy cause I thought everyone lived the way they wanted, not the way they could.
+I have been lucky enough to grow up in a wealthy family, but I didn’t know I was wealthy cause I thought everyone lived the way they wanted, not the way they could.
 One day I went into my instagram account and I saw that a girl had left a comment on my latest post and it read “Filthy rich people like this, make me sick”. 
 
 Filthy rich?, why was she mad?... I was only posting a normal picture of me in a restaurant I often go to.  
@@ -131,7 +129,7 @@ N: “Grace if it’s ok with you, I’d like to take you out on a date and see 
 I bought my ticket to Chicago and then I was going to Utah to meet Grace. I had to be prepared so I googled “Dating a visually impaired girl” and a few sites had information about dating fully blind people, not partially sighted. I didn’t know how much Grace could see so my sister gave me the advice of going to that date as I would to any other date, and if there was something I needed to know maybe Grace could teach me, and I thought it was a great advice. 
 
 Tomorrow I’m meeting Grace, and I’m feeling a little bit excited!!...
- 
+
 PART II COMING UP TOMORROW
 
 https://vision-and-spex.com/justaregularday-part-i-t2520.html

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Deep secrets, evolving vision, and glasses fetishism intertwine in this coming-of-age tale of self-discovery.
 ---
-
 I was getting older and my glasses obsession was becoming part of me. I was near the end of 6th grade when I believe I masturbated for the first time. The initial time was just caused by thinking about glasses, but shortly thereafter I began using pictures of girls wearing minus glasses to facilitate. 
 
 Right around this time I had a check up appointment at my doctor’s and during the eye exam, which I had always done well on in the past now looked farther away. The letters below the 20/20 line were a blur even though I used to be able to read some of the 20/15 and 20/10 letters. A little above the 20/20 line was illegible too. I was distraught because although I was beginning to grow accustomed to my glasses fetish and at this point wanted to wear glasses myself, I could not get over my fear over needing glasses and being singled out for them. I had a hard enough time fitting in as it was so I did not think glasses would help. The best I did was 20/50 or maybe 20/40 and I was very upset at the idea of probably needing glasses. 

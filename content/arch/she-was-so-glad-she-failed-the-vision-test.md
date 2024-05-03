@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In the midst of a close-knit friendship, tragedy strikes, leaving one family to navigate a new reality.
 ---
-
 Jim and Jeff were cousins , they lived on the same street,and always have been close friends,
 they are like brothers.
 They loved playing sports and were very active in any other activity.

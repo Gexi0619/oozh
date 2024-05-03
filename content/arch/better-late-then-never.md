@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy's struggles with his vision lead to unexpected discoveries and a newfound appreciation for glasses.
 ---
-
 Better late then never.
 
 

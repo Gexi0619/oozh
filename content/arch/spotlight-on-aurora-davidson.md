@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A journalist races against the clock to fix an article while navigating office politics and a celebrity interview.
 ---
-
 “There you are, Megan.  Did you have a good day yesterday?”
  
 “Err, yes, thank you.”

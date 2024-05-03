@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In 1948, a young man in rural Ontario gets his first pair of glasses, experiencing a simpler time before modern technology.
 ---
-
 I was prescribed my first pair of glasses  in 1948.
 Let me give you some idea what life was like at that time in rural areas.
 This i s only a few years after the end of world war 2.

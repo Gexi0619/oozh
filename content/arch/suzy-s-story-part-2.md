@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: into bed, propped herself up with pillows, and began to read. The words on the page came into focus, clearer than ever before. Suzy smiled, realizing that her secret glasses adventure had opened up a world of clarity and possibility. Little did she know, this was just the beginning of an incredible journey that would change her life forever.
 ---
-
 Suzy went upstairs to her parents’ bedroom. Now where would mum keep old glasses? She started looking in her mum’s bedside cabinet which had a small drawer at the top. She opened it but there was just a lot of old rubbish in there – an old watch, some receipts, a couple of postcards, some broken costume jewellery – no sign of any specs.
  
 She then went across to the dressing table which had a long drawer in the middle, she opened that – inside were various jewellery boxes, make up bags, hair brushes and ties, but still no glasses.

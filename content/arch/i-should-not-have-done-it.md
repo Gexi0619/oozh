@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A glasses-wearing woman navigates love, infidelity, and the unexpected as she navigates life and motherhood.
 ---
-
 ,I should not have have done it ? 
 
 

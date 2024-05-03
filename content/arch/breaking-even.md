@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Optometrist aims to break even in prescribing and navigates clients with various needs and prescriptions.
 ---
-
 It occurred to me, as I said goodbye to my first couple of clients, that I had as good a chance today at “Breaking Even” as ever.  This was a game we had devised while studying to become optometrists, where we aimed to break even in terms of what we prescribed, giving out as much plus power as minus power.  It was not easy to do, as certain times of year tended to upset the balance.  I may have succeeded in the past, but since qualifying a couple of years earlier, I had not given the game much thought.  Today, however, I had started well.  My first two clients had been and gone, and my score was still zero.  Mr. Johnson had required no change at all in his prescription, while his wife had one eye which had remained unchanged, where her right eye had shifted from -2.75 -0.50 to -2.50 -0.75, and as far as the rules of the game we had devised were concerned, this counted as “no change”, as the total prescription was exactly the same.  It is also worth pointing out one other rule, and that is that all reading adds were disregarded.
 
 As Mr. and Mrs Johnson were married, I had examined their eyes together, so I used the few spare minutes before my next client to leaf through the notes of the other clients to see what sort of chance I thought I had.  There were seven of them in total.  Today was Saturday, and I was due a half day, in lieu of the extended hours session I had worked on Thursday evening.  I was looking forward to the chance to go and watch United,  my local football team that afternoon.  The new season had started well, and we had gained seven points from the first three games.  My peremptory examination of the notes showed me that I had a slim chance of breaking even, but with two of the clients being totally new, I put all thoughts of my little game to the back of my mind as I read my next client’s notes in greater detail.

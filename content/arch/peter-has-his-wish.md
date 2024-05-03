@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Peter, a young boy, finds friendship with a girl who shares his love for glasses.
 ---
-
 Peter, got his wish.
 
 

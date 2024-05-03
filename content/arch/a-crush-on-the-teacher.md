@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Teacher's infatuation with students' glasses unveils hidden dynamics in a diverse junior high classroom."
 ---
-
 A Crush On The Teacher:                                       
 
 My first teaching assignment after I graduated was in a grade 7 class at a junior high school in an older section of the city.  As a white male, I was certainly in the minority; however I don’t think that any one ethnic group in the area really had a majority. There were Asians, African American’s, Hispanic’s and Whites, along with a smattering of people from the Islamic countries. So all in all it was a pretty mixed bag.  One thing I did notice that seemed unusual to me was that there truly seemed to be integration in this school.  No one race had seemed to set themselves up as the dominant force and that was, in my opinion, wonderful.

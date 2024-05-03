@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An exhausted teenager finds hope in her estranged aunt who offers her a new home and a chance for a better future.
 ---
-
 Now, that I wear glasses, I can see the real world.
 
 

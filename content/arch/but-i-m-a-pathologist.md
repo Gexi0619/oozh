@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Natasha, a pathologist, is forced to treat accident victims when she stumbles upon a car crash.
 ---
-
 Author's Note: This is free fantasy; not a grain of truth anywhere in it. I'm not a pathologist, nor do I play one on TV. Some suspension of disbelief is probably necessary.
 
 

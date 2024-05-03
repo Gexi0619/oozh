@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy finds confidence and first love during a summer vacation with his glasses-wearing crush.
 ---
-
 By the summer of 1984 I was your typical low self esteem riddled pre teen! 12 years old, a mouth full of braces, and, of course, a pair of glasses permanently perched on my face. By that time my prescription had crept up into the -4 range so the glasses were a necessity. That year for vacation we attended a family reunion in Maine.
 My fears were realized when, upon arrival, I figured out that I was the only kid (out of like 17) in the family that had glasses. Now kids love wearing them and there's no stigma attached, but then it was a different story! My glasses were a curiosity which launched a barrage of teasing, taunting, etc....
 At first I tried to play it off that I only wore them sometimes. I would attempt to take them off and go without, but as I really couldn't see that didn't work for long so I just endured.

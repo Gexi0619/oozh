@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A single mother takes her daughter for an eye test, leading to a surprising discovery about her own vision.
 ---
-
 “Shit, I don't have time for this.” Laurie muttered under her breath as she read the note from Caitlyn's teacher.  The note was a suggestion from Mrs. O'Neill that Caitlyn might benefit from a vision exam, as recently she had not been able to see distance things as well as the other children in the class could.
 
 Laurie knew that she had to make the time to take Caitlyn for an eye test. As much as it seemed to be a lot of bother to look after her daughter all by herself, 27 year old Laurie didn't want it any other way.  When she had discovered she was pregnant with Caitlyn the year she was 19, and still attending the community college that she eventually graduated from she had told Caitlyn's father that she was pregnant. His reaction was not good, and he suggested that an abortion would be the best thing for everyone.  But Laurie had been brought up to believe that an abortion should only be used to terminate a pregnancy if the life of the mother was in danger, or if the fetus was a result of a rape.  Laurie refused to have an abortion, and she told Kyle that she would raise her child on her own. So, for the past 7 years Laurie had been both mother and father to the most beautiful, smartest daughter anyone could imagine.  It didn't bother Laurie that Caitlyn might need glasses, as over the past few years more and more kids seemed to be wearing them.

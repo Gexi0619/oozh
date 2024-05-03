@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: not know what to expect at the eye exam, but I was excited to finally get my eyes checked.
 ---
-
 Now, she loves, wearing prescription glasses.
 
 

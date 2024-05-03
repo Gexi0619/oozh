@@ -7,8 +7,7 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Ocean View High School students discover their English teacher's secret, she wears glasses, and they're stronger than anyone imagined.
 ---
 
 It is 9.30 a.m. on a regular Thursday at Ocean View High School. Breanna and the whole class is waiting for Ms. Hart to turn up for English class. Finally, she walks in looking different than usual, almost unrecognizable by her students if not for her characteristically curly auburn hair and slender body. What’s new? The pair of round red-framed glasses that sat on her nose in front of her face. The lenses are strong and their edges noticeably stick out of the plastic frames that hold them.

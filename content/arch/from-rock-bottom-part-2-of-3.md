@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: David's life takes unexpected turns as he navigates new friendships and discovers hidden connections in his small town.
 ---
-
 After the breakfast rush was finished Lana and the 2 girls stayed to look after the restaurant while David and Pete carried the bed up the stairs and set it up in the smaller bedroom. Then Pete took David to a used furniture store and they bought a couch and a matching chair as well as a couple of end tables, a coffee table and a dresser for the bedroom.  Pete insisted that David did not have to pay him back because the furniture would stay if David left, so David agreed to that.
 
 Things were almost perfect for David for the next 6 months. Soon after he got his first paycheck David had purchased a television and now he could spend some time watching it when he was off in the afternoon and then in the evening just before going to bed.  The first invasion of his privacy that occurred was when Pete and 4 of his friends from the Lions Club would come over every Thursday night and go through the week’s collection of donated glasses.  David didn’t really mind that and he joined the guys sorting and cataloguing the glasses.  Then the next thing was when Trina asked if David minded if her 7 year old daughter Karin came in after school and did her schoolwork and watched television up in the apartment. Karin was really no bother and she pretty much kept to herself, but David had noticed that Karin seemed to sit very close to the television, and whenever she was reading she brought her face pretty close to the reading material.  David had his suspicions that maybe Karin was actually quite nearsighted, because this is what David had done before he got his first pair of glasses to correct his myopia when he was 10. 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's struggle to plough straight rows on her family's farm leads to unexpected consequences.
 ---
-
 My parents had a 100 acre farm, which is where my sister and I grew up.  A 100 acre farm was not nearly large enough to grow enough crops on to support a family and the truth of the matter was that my dad considered it more of a hobby farm. Dad also had a full time job as a game warden, and he likely could have sold off all the farm equipment we had, rented out the farm and made more money.  But he loved the farm, which had been in his family for a couple of generations.
 
 After the crops were off in the fall of the year dad would plough up the fields. Then he would disc and rake them.  Depending on what had been planted on the field the previous year they were planted with winter wheat, and sometimes they were planted with corn. If the field had corn planted on it most of the time the corn didn’t come off until after the ground was frozen, so that field was ploughed in the early spring and was often planted in alfalfa for hay.

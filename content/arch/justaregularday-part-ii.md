@@ -1,5 +1,5 @@
 ---
-title: #JustARegularDay Part. II
+title: "JustARegularDay Part. II"
 author: Nicole Way
 date: '2023-01-31'
 categories:
@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Nicolas travels to meet Grace, but their first meeting is filled with insecurity, surprises, and unexpected connections.
 ---
-
 My flight was awful! Cloudy skies make the plane move a lot and turbulence makes me super anxious. 
 
 I told Grace I’d meet her in the afternoon, I wanted to be able to take a bath and rest a little.

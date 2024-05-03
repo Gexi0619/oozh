@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Embarking on a dream train journey, a man's unexpected encounter sets the stage for an intriguing adventure."
 ---
-
 I had been anticipating my journey for a month now. This year for my annual holiday I was planning to take the train from my home in New York City out to Los Angeles, Ca. After spending 2 weeks in Los Angeles I had a return ticket to take me back home.  For years I had dreamed about making this trip, and finally tomorrow my dream was going to come to pass. 
 
 That evening I packed my bags, and went to bed early. Knowing sleep would not come easily I had poured myself a stiff shot of rum and coke, and the liquor helped me drift off to sleep.  But I woke early the next morning in anticipation of my adventure.  It was still dark when I got out of bed and had my shower.  Then I took my contact lens case from the bathroom counter top and opened the side containing the left lens. I closed the drain plug, remembering the time that I lost a lens down the drain.  I recovered the lens, but I had been forced to disassemble the drain at the trap to find it, and I didn't have the time for that today – or any other day for that matter.  I removed the left lens and washed it carefully with solution. Some people can put their lens on one finger and pop it into their eye, but I find the two fingered approach to work best for me.  This time the lens went in the first time, and after I blinked a couple of times I was satisfied that it was going to be comfortable for the full day.  Then I cracked the lid off the right lens case, and repeated the procedure.  Once I was sure that the right lens was comfortable I opened my glasses case and took out my glasses.  These glasses were a weaker pair than the ones I have been wearing recently, but I didn't want to stand out as a visually impaired person, so for this month of vacation I was going to wear my OD -17.50D and OS -17.00D glasses.  These glasses have progressive lenses and were done in a 1.9 hi index glass, so they look quite thin.  They do look fairly strong if, like me, you know what to look for, but most people don't even give them a second glance.

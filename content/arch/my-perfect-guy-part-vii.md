@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man with extreme myopia explores a risky eye surgery option while his doctor advises against it.
 ---
-
 “Michael, what do you mean you don’t have a spare pair? I have patients who have -1.5 diopters and they have a spare pair… How on earth is this possible?” Dr. S said
  
 “I know Doc. I am desperate; I can’t see anything and my eyes and head hurt.” Mike said

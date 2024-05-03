@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's journey through escalating prescriptions and changing frames, all while navigating life's milestones.
 ---
-
 My wife's glasses 
 
 My wife had perfect eyesight at the age of 12.

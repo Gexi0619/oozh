@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teenage protagonist finds themselves captivated by a friend's transformation after getting glasses.
 ---
-
 Dear Forum,
 
 

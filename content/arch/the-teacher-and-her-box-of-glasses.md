@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teacher's fascination with young girls wearing glasses leads her to closely observe her students' vision changes.
 ---
-
 The Teacher, and her box of glasses.
 
 

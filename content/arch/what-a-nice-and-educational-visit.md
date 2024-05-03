@@ -7,10 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A high school cheerleader falls for the most popular guy in school, leading to unexpected twists and turns.
+word_count: 2176
 ---
-
 What a pleasant, and educating visit.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Sibling dynamics and a desire for glasses lead an 8-year-old boy on an unexpected journey of self-discovery.
 ---
-
 We want to wear strong myopic lenses
 
 

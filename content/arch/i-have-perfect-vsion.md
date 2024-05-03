@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: The protagonist's perfect vision leads them to appreciate the beauty of glasses and form unexpected connections.
 ---
-
 My vision is perfect
 
 

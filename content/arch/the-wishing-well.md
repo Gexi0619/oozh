@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Katie's wish at a mysterious wishing well leaves her with impaired vision and unanswered questions.
 ---
-
 ----------------------
 The Wishing Well
 ----------------------

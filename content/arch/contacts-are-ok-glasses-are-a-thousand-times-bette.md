@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's love/hate relationship with contacts leads to unforeseen consequences, forcing her to rely on glasses full-time.
 ---
-
 Contacts are OK - glasses are a thousand times better.
 
 This is a tale of my wife's love/hate affair with contacts.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Ten-year-old teacher discovers magical glasses that transform her view of the world and those around her.
 ---
-
 The teacher, and the magic glasses.
 
 

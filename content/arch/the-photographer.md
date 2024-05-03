@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter reunites a former high school crush and a talented photographer at a football game.
 ---
-
 The Photographer
 
 I turned my head just in time to see the football heading directly towards me on the sidelines.  A pair of arms leapt into the air to snatch the ball.  As the tight-end attached to those arms returned to earth, I realized he was being pushed out of bounds by a linebacker and a safety from the opposing team.  I side-stepped deftly as the three men violently fell to the ground in the space I had occupied just moments before.  Bumping into other reporters who had scattered as well, I straightened myself and discovered I was standing beside a pretty woman peering through a camera with a huge lens.  She had captured the entire incident without flinching.

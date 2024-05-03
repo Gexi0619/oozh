@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Chrissy, a star athlete and prom queen, meets Tom, a charming dancer, igniting a whirlwind romance at 'The Hay Bale'."
 ---
-
 The story starts when Christine Marie Thompson was a 17 year old high school girl that was the star player on her softball team. She was not only the best hitter on the team but a great fielder as well and besides be a very good athlete she was also quite attractive and was voted prom queen in her senior year. Chrissy, that's what she preferred to be called, she never had any problem about having a date on the weekends. She really didn't want to limit herself to any one boy so she would date different boys most of the time. 
 
 She grew up as the typical farmers daughter in a small town in Livingstone Tennessee  She lived on a farm with her parents and she was an only child. She had her chores to do but enjoyed the farm life. After graduating from high school she headed off to college in Nashville to study computer science. She stayed in a dorm with another young woman about the same age age as her and she was also in her first year of college. 

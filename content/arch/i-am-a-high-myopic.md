@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A myopic mother worries about her daughter's vision, but finds comfort in her own experience with glasses.
 ---
-
 I am a high myopic
 
 

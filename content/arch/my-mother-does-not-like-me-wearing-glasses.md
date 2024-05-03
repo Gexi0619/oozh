@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl named Corey discovers a love for glasses and embraces her newfound vision and identity.
 ---
-
 My mother, does not like me wearing glasses !
 
 

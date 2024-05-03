@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: be less of a problem. It's just a matter of time.
 ---
-
 This my second attempt of writing a story
 You already know the characters, so here it is:
 

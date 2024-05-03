@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Amy's discovery of a mysterious box leads her to embrace a new look and a surprising confidence."
 ---
-
 Amy is a 20 year old , studying to become  nurse. She is a very pretty, well endowed , blond girl, doing well in her studies. She lives in a rented room not far from the university
 Her boyfriend Ken . a handsome guy, a couple of years older than Amy, works as a licensed mechanic and doing well for himself.
 The two of them have been a couple since high school.

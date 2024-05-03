@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman opens her own shop in a small village, embarking on a journey that will change her life forever.
 ---
-
 It was the biggest gamble I had ever taken, and I knew it.  If it paid off, I’d be my own boss for the rest of my working life, and I’d be able to retire when I wanted to.  If it didn’t, I’d probably be working until I was seventy, just to pay off the loans and debts I’d taken on.  In a time where online shopping had still not peaked, and when High Streets were suffering, it may have seemed strange to be opening up in a village.  However, with all the new building going on around, the village centre had kept all its shops, and I had had to wait a couple of years to buy the old florists’, and the only reason it had come on the market was that Mr. and Mrs. Bolton, who had been running it since before I had been born, had finally decided to retire.
  
 The last few weeks had been incredibly hard work.  I’d been working my regular day job in one of the stores in town, and in the evenings, I had been hard at work setting up my own.  Today, was my first day as my own boss.  I’d got in early, so I was ready to open up at ten o’clock.  I hadn’t got any appointments at all, so for all I knew, I was going to be sitting on my own all day, until closing time, at six in the evening.  I’d decided to stagger my opening times slightly from the other shops, as I hoped that the convenience of being open a little later would also bring in business from people coming in after work.

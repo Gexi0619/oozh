@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A gripping tale of vision loss on Mt. Everest leads ophthalmologists to uncover the truth.
 ---
-
 I finally decided to write a story. Its's not a traditional one as others on this forum, but I hope you'll like it.
 
 In year 1996, Beck Weathers was preparing to climb Mt. Everest after having radial keratotomy (RK) to treat myopia. Having arrived into the Everest Base Camp (~5370 m AMSL) he noticed difficulty in his near vision. Beeing 50 and trained physician he knew that presbyopia was nothing new, but having put his glasses on, he realised something else. He felt like this weren't his glasses. Even his distance vision wasn't as good as usually, specialy in the dark, but nobody knew about this untill the day of final ascent. At a bit over 8000 meters, right in the death zone, he was forced to stop his ascent. He could only hope that his vision will improve, but it didn't. Having never summited Mt. Everest, he sufferd severe frostbites and was left to die, but he survived. The rest is history.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An antique store adventure leads to a pair of mysterious glasses with unexpected consequences.
 ---
-
 Sometimes when I am traveling and have a bit of free time I like to stop and walk around antique stores or thrift shops. I have found some really neat items in the antique stores, as well as some very decent bargains in the thrift stores. I really like to collect old glasses, and price wise the thrift stores are generally the best place to go for them.  But lately I had been finding that the selection of eyeglasses in the thrift stores was very poor and I wondered if the glasses had been going to one of the service clubs that help people in disadvantaged countries.  Now the only time I seemed to be able to find a pair of decent powered glasses was in an antique store and the prices were a whole lot higher than they were in the thrift stores.
 
 One day I was passing through a small town off the beaten path in the heartland of the USA.  I had plenty of time to myself that day and the idea of jumping on the interstate that morning had turned my stomach.  Since I retired I had found that the fast pace of the interstates just were not what I wanted.  There were a couple of antique stores that were almost side by side and there was a parking spot not far away, so I pulled my car into the parking spot and went into the closest store.   I walked around for a while, and although the prices were far more reasonable than I had seen in an antique store for quite a while I hadn’t seen anything that really caught my fancy.  There were no old glasses on display either.  So I walked a little further down the street and went into the other antique store.

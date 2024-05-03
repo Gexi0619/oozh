@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Camden's life takes unexpected turns as she navigates a suffocating job, a failing relationship, and a new love.
 ---
-
 I really hate this job. Life hasn’t been what I thought it would, I’ve tried in so many ways to become the person I want to be, but it seems impossible. 
  A few years ago, I got a job at a public office, even if I was studying to become an Engineer and the position was for a secretary, the job was everything a student would’ve wanted.   My name is Camden, but no one calls me that, everyone refers to me as Cammie. I’m 26 years old and I’ve been… well was in a romantic relationship for 6 years with another girl, her name is Danielle.   Danielle was a very cool partner, she is a journalist, and she is the kind of person who everyone loves to have around. The only problem for me, was that she absolutely hates her glasses. Is not that she needs them really bad, her prescription is about -1.5 each eye, but she refuses to wear them. 
 

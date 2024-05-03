@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A childhood friendship with a girl who wore thick glasses leads to a high school romance with another girl who wears glasses.
 ---
-
-                             
 When I was in kindergarten there was a girl in my class who wore glasses. Her frames appeared to be almost too small for her face, but even with the small frames her lenses looked to be really thick. I still remember staring at her in class, wondering what was wrong with her eyes that made it necessary for her to need to wear such thick glasses. And even with her thick glasses on Meghan was not able to see things off in the distance very well. She was able to explain to me that the lenses in her glasses made things far away very tiny and that was why she couldn’t see them until she got up closer. Meghan was in my class until we went on to junior high in grade 7, and during the years we were in the same classroom I became quite friendly with her. She was the one who made me curious to learn about myopia and myopic progression. In grade 3 a couple of other girls got their first glasses and although I knew they were also myopic their glasses were much thinner and more normal looking than Meghan’s were. I sort of liked the appearance of Meghan’s glasses, but I certainly would not have wanted to wear them. Meghan showed me one day how close she had to get to something in order to see it without her glasses and although I would not have minded wearing glasses I knew that I didn’t want to be as helpless as Meghan was without hers.
 
 Once Meghan was no longer in the same class as I was, we gradually drifted apart. Meghan was pretty self-conscious about her thick glasses and she really didn’t want to call any attention to herself. For the last 4 years I had sat next to her and had passed the notes I took off the chalkboard to her so she could copy them if she needed to and I sometimes wondered who was helping her out now. Other than that, Meghan never crossed my mind and I seldom even noticed her around the school because she had gotten contact lenses and she now looked like a different person and blended in with the girls that didn’t wear glasses.

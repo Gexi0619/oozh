@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Childhood friends Marissa and the narrator playfully experiment with glasses, later discovering they both need them.
 ---
-
-                                     
 Back when I first started Kindergarten, I met Marissa Williams. Over the first few weeks of school Marissa and I became good friends and confidants, and this was to go on until we both went off to University. At first, we texted, and e mailed each other, but as so often happens we drifted apart.  Recently, I met Marissa again and we have since reconnected, so now I can tell you the rest of the story.
  
 My mom worked every day, but Marissa’s mom was staying home to look after Luke, Marissa’s 2-year-old brother. I started off going to daycare after kindergarten, but once Marissa’s mom found that out, she offered to let me come to their house to play with Marissa. I am pretty sure my mom gave Marissa’s mom some money every week for looking after me, but I don’t think it was a lot. I know I really enjoyed being at the Williams house far better than I had liked the daycare and I know that Marissa liked having me there as well.

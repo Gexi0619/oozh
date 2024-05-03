@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's attraction to her boyfriend's vulnerability without glasses leads to an unexpected breakup.
 ---
-
 I don't want to disappoint you but this part doesn't have sexual content. However next one will. THANK YOU SO MUCH FOR YOUR PREVIOUS COMMENTS!
 
 Let me know if you like it please.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: d closely, I realized the notes were blurry. Maybe wearing glasses wouldn't be such a bad idea after all.
 ---
-
 Carol, it is all, because of you !
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A boy navigates a hippyish town, fascinated by glasses, and tries to impress a girl named Rachel.
 ---
-
 Chapter 1
 The Wannabe
 -------------------------------

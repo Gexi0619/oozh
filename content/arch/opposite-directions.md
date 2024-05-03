@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Louise and Jess become unlikely friends in high school, bonding over a project and a secret.
 ---
-
 The start of a new school year is always a moment tinged with a mixture of hope for what lies ahead, and sadness that the long Summer holidays have drawn to an end, so as Louise Medhurst put on her uniform for the first time in 6 weeks, she started to wonder what her GCSE classes would be like, and who she would be sitting next to.  The most likely two were Edward Mills and Sean King, as most teachers seemed to seat their classes alphabetically, and she had spent most of the previous three years sitting next to one or the other.  They were all right – not boyfriend material, but they worked sensibly enough, compared to some of the immature boys in her class.
 
 The walk to school was uneventful enough.  She chatted to her older brother, Simon, on the way there, and they duly arrived at 8.44, in time for the 8.45 bell.  The first day back saw them all lining up to be sorted into their different classes, so she said goodbye to Simon and went to find her own friends.  In the end, it was neither Edward nor Simon who was sitting at the same table, but Jess Little.

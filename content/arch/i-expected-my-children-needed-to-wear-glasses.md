@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A family's concern for their children's vision during a pandemic leads them to an unexpected neighbor for help.
 ---
-
 Surprising, what can happen, during a pandemic.
 
 

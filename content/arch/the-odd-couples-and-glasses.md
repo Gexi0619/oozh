@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Intriguing tale of friendship, self-discovery, and unexpected romance, all centered around a newfound appreciation for glasses.
 ---
-
 Trevor a 12 year old  is a very athletic boy , who loves riding his bike, playing soccer and baseball.
 His close friend Jeff who lived next door has moved away, and he sure misses him.
 New people are due to move in Jeff s house next weekend .

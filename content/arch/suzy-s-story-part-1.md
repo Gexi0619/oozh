@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Suzy's eyesight deteriorates while studying, but finding her parents' reading glasses offers a surprising solution.
 ---
-
 Suzy looked up from her Chemistry homework and rubbed her eyes again. Maybe she had been studying too long again but she was desperately keen to get the grades she needed to study medicine at university. The problem was the longer she studied, the more her eyes seemed to blur and eventually she had to just give up.
  
 It was weird as she had always prided herself on her great eyesight – she could always see the bus numbers better than any of her friends and sat at the back of the class as she had no trouble reading the board. However recently the studying was becoming more of a struggle. A couple of her friends had started wearing glasses as they learned to drive, but Suzy had tried them on, as everyone in her friendship group had, and they just made things smaller in the distance, so she was sure she didn’t need glasses.

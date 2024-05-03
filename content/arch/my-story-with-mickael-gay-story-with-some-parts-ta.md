@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter in a sauna club unveils a glasses fetishist's deep attraction to a man named Mickael.
 ---
-
 First of all, I would like to apologise for my bad English. My mother tongue is French. My story is real, it is not an invention. I replaced the sexual parts by some ***, to post it here. I hope you will enjoy it. I’m waiting for your comments. (Let me know if I must remove some words like f**k or c**k).
 
 

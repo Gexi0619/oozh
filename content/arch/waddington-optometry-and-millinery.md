@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Helen's failing eyesight makes her question her future as a servant on Lord Waddington's estate.
 ---
-
 Helen squinted in the direction that her older sister had pointed, but as hard as she tried she could not distinguish the figure of a deer from the blur of the tree trunks.  She knew her eyesight was not as good as her brother or her sisters, but recently it seemed that she could see less and less of anything that was even a slight distance away from her.  And last week, when she was helping the main housekeeper dust Lord Waddington’s library she was severely reprimanded for missing a number of dusty areas. It just wasn’t fair that at only nine years of age her eyesight seemed to be so poor.
 
 Fortunately her 14 year old sister, Marsha, had eyes like a hawk. She quickly fitted an arrow to her bow, and with a quick dispatch the arrow brought the deer down. Now they would have meat to eat for a while because they would trade some of the meat to other families who lived on the estate of Lord Waddington and then the other families would bring them food from their kills or from their gardens. This form of helping others had been going on for many years, and now in 1799 Helen was old enough to be able to see how well the time honored system worked. She was definitely going to need the help of others as she grew older because the status of her family was only that of servants on the estate, and while their housing costs were paid for, the wages that they earned from working for Lord and Lady Waddington didn’t allow her family to put much money aside.

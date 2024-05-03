@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a doctor's waiting room, a woman battles weight gain and an unusual solution to her eyesight problem.
 ---
-
 ------------------
 At the Doctor
 ------------------

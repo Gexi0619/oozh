@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a moment of distraction, an optician's lens ends up lost amidst a patient's ample bosom.
 ---
-
 --------------------
 At the Optician
 --------------------

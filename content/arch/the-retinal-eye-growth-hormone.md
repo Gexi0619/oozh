@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A family participates in a study on myopia, hoping to find a way to prevent their daughter's worsening eyesight.
 ---
-
 I glanced at Kimmie, my almost 16 year old daughter who was sitting in the passenger seat of the car.  She is such a beautiful child that it is too bad that she has to wear such strong glasses.  Her  sister Paige was seated behind me in the rear seat, and I looked at Paige in the mirror. Paige is not quite 14 and has been wearing glasses now for around 5 years, but her prescription, at -6.50D, is not nearly as severe as her older sisters. Fortunately their brother Devon, who is 12, does not wear glasses and I have been told by the doctors in the study that there is only a very small possibility that Devon might develop a little myopia.
 
 Because Kim is so extremely nearsighted our family was selected for a study at the Ophthalmology Center of the university.  Kim started off at age 3 requiring around a -3D prescription, and over the next 9 years her -3D prescription increased by -14D.  While she was younger the increases were somewhere in the neighborhood of -0.75D a year, but in the 3 years before she turned 14 she had increases that were around -1.00D a year that gave her the -18D lenses that she has needed in her glasses since she was 14.  And now, at age 16, she is wearing -19D lenses in her newest pair of glasses.

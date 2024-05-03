@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Intrigued by her employers' glasses, a poor maid discovers the power of a hidden world.
 ---
-
 I WAS JUST A COUNTRY GIRL
 
 My name is Maria. I was 14 years old when this story started,my family is very poor. My father was a farm labourer, so I have been sent away to work as a maid,in this big house.

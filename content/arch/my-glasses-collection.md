@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Sadie's obsession with glasses leads her on a secret mission to find the perfect pair to wear."
 ---
-
 My glasses collection
 
 

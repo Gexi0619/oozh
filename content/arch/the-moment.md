@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Teenage girl Jadyn is thrilled to have her first date and driver's permit test in the same week.
 ---
-
 The Moment
 
 Though I couldn’t see who shouted out, I heard, “Jadyn is with Jaden!”

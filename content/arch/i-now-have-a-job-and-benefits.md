@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A single mother, a determined teenager, and a friendship that leads to unexpected opportunities."
 ---
-
 I now have a job, and benefits
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Roommates Leslie and Amy discover the transformative power and allure of glasses, igniting a passionate connection."
 ---
-
 After graduating from university, where they were room mates for a number of years, Leslie and Amy moved into a nice apartment.
 They were very fond of each other , and got along well.
 They both had a good job , Leslie worked at a bank, and Amy worked in the office of an insurance company.

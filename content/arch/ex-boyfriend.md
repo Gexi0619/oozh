@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A gripping tale of a secret fetish, a deteriorating relationship, and the struggle to accept one's imperfections."
 ---
-
 Hi everyone,
 I'd like to share my story. 
 I've always had a fetish with men struggling and squinting to see. I don't know why. I Rember having this weird fetish since I was a kid. Always have been very careful and by today no one knows about it. I'm gay and some years ago I had my first boyfriend. He was handsome, tall and good looking. I met him at the university when we were in our early 20's. Anyways in the begging we were just classmates but started going out with some other classmates and eventually become friends. After one or two years we started dating and became a couple. 

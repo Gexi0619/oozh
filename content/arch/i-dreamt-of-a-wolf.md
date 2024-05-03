@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: home as quickly as possible and rushed over to her, asking if she had been waiting all this time. She nodded, tears streaming down her face, and I knew that I couldn't just leave her to fend for herself anymore. I made a decision in that moment to take her in and care for her, to help her navigate a world she could barely see. Little did I know that in doing so, I would uncover the dark secrets of her past and find myself entangled in a web of danger and mystery. Together, we would embark on a journey of survival, love, and self-discovery that would forever change our lives. "I Dreamt of a Wolf" is a thrilling and captivating tale that will keep you on the edge of your seat until the very last page.
 ---
-
 -----------------------
 I Dreamt of a Wolf
 -----------------------

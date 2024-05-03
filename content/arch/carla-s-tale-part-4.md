@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a desperate attempt to escape the police, Carla plans to dive into the sea and rendezvous with Paul.
 ---
-
 Carla’s Tale – Part 4
 
 Please make sure you have read Carla’s Tale Parts 1, 2 and 3 before reading this.

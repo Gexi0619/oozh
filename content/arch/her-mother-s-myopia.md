@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a story of inherited nearsightedness, a couple navigates the impact on their family as their children's prescriptions increase.
 ---
-
 I knew when I married my wife that since she was quite nearsighted the chances were good that any children we had would quite likely be nearsighted also.  My mother had commented on that possibility before Janet and I married but she didn’t seem to be dead set against our marriage and I took that to mean that she would accept whatever came along as I knew she wanted grandbabies in the worst way.
  
 Janet miscarried when she was 4 months pregnant with what was to have been our first child. We had only been married a year when this happened and while it was a sad occasion there was nothing we could do about it. I didn’t mind when Janet had to get a new prescription for her glasses afterwards, as I quite like the looks of a nearsighted lady. Her eyesight was not good, and she was already quite dependent on her -14.50D glasses. An increase of -0.75D seemed terrible to her, but I barely noticed the little bit of extra thickness to the lenses in her new glasses.  I was not unhappy about her needing stronger glasses and in fact I hoped that her prescription would increase even further with another couple of pregnancies.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: High school musicians form a band and navigate their passion for music while facing challenges and rivalries.
 ---
-
 **It has been a while since my last post, I'm leaving you with my most recent one. I hope you like it. WARNING IT HAS SEXUAL CONTENT**
 
 "THE DIOPTERS"

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a world of denial, one teenager fights to uncover the truth about his deteriorating vision.
 ---
-
 To be clear this story is fantasy but I wonder if something like this really happened.
 
 I was born July 1st 1965 in Southport Indiana about 5 miles south of Indianapolis. I had a great childhood for the times as an only child and both parents working blue collar jobs for good money. Due to my birthday I started 1st grade while still age 5 which I learned later many thought was too early. I easily passed first grade proving the skeptics wrong. I was not taken to an Optometrist with my parents relying on the school vision checks as many families did back then. In 4th grade I started complaining of headaches after reading for a long period of time. I talked to a friends Dad who was an MD and he suggested I ask my parents for an eye exam. When I did ask for the exam my parents dismissed it as eye strain. Neither parent at the time wore glasses.

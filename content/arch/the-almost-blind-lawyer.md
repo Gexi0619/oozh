@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A struggling paralegal and his colleague exchange glasses, leading to a shocking discovery about their eyesight.
 ---
-
 A number of years ago I had completed the preliminary education that was required for me to be able to become a lawyer. I did not have the necessary funds to continue on to law school at the time, so I ended up working for a large law firm as a paralegal. One of my colleagues, an attractive young lady named Gail, was in exactly the same predicament as I was, and had also been hired around the same time by the law firm.
 
 Gail and I became rather good friends.  Sometimes we were even assigned to work on the same cases, and as a result we got to know quite a bit about each other. I had been wearing glasses for years, and when I graduated from university my prescription was a fairly strong -5.50D for both eyes. That meant that I was just nearsighted enough that it was not comfortable for me to take my glasses off when I was doing a lot of reading, although sometimes when I was at home in my apartment I would read in bed without my glasses.  Gail had never worn glasses, but I had my suspicions that she was a little nearsighted just because of the way she held her reading material, as well as because she seemed to squint to see things in the distance.  Also, she had tried my glasses on a few times, and she seemed to be able to make her eyes focus through them. For someone who had perfect vision I felt that my glasses were a little too strong for them to be able to do that.

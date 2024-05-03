@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A shy boy hides his deteriorating vision from his friends in order to avoid wearing glasses.
 ---
-
 My name is Timmy and I am going to tell you the story of the time my vanity truly affected me. My story starts when I was in 6th grade. It was the first day of school, and now that it was middle school we were allowed to pick our seats in class. Being the shy boy I was I chose to sit in the back row. At first this was fine but soon things were going to change. 
 
 As it was a new school, I had to make new friends. Quickly, I had solid group of six friends: Aidan, Eric, Evan, and Ami and Molly. Every day at lunch we would eat together, and sometimes even did things on the weekend. Things were going really well socially, and sooner than we knew it, it was December break. 

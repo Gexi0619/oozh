@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: From blurry vision as a teenager to a high-risk cataract surgery, this gripping memoir will captivate readers.
 ---
-
 I got my first glasses when I was 15. I had been getting more and more nearsighted. but I didn't really know how bad it was. The best I can remember, my first glasses were about -3.5 or so. That was about 1989, so it is hard to remember. I have them in the drawer with the rest of them I've worn over the years. I never got behind in school because I could see up close and could get by with sitting close to the front of the classroom to see what was on the board. What happened was, my mom took me to get my learner's driving permit. 15 was the age then, but it may be different now. When I had to look into the eye test thing. I couldn't read any of it. After that happened, they took me to the optometrist. I got glasses, and it was amazing what I could see. I didn't realize what I wasn't seeing. The best I can remember, things had started to get a little blurry when I was around 10. So I had been in a blur for five or so years. 
 
 A few years later, I went back to the optometrist, and the prescription went up a little more. Then a bit later, it got a bit higher to the -5 range. The worst it ever got was -6.5 in both eyes or so, and it stayed that way with some slight variations. About 10 years ago, I got progressive bifocals, and that helped a lot with everything. December 2021, I started noticing some blur in the right eye. I tried on several pairs of my old glasses, and one pair that was a little stronger than the ones I was wearing then cleared things up a bit. So I started wearing them. By about March, things were getting worse. One day, while I was outside on the front porch, I closed my left eye, and just looking through the right, I couldn't read "stop" on the big red sign at the end of the road in front of the house. The sign really isn't even that far away. I figured I should get it checked out. 

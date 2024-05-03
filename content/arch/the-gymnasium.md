@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Experience the challenges and triumphs of a young gymnast with blurred vision in "The Gymnasium."
 ---
-
 --------------------
 The Gymnasium
 --------------------

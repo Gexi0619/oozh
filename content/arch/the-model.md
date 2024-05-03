@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man becomes enamored with a shop dummy, fantasizing about how she would look with glasses.
 ---
-
 -------------
 The Model
 -------------

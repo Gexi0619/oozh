@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A bank employee discovers her coworker has a mysterious ability to pick up objects with her mind.
 ---
-
 -----------
 The Gift
 -----------

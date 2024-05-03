@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Young couple Jim and Kim win the lottery and use the money to build a dream community called Glasses Town.
 ---
-
 While my wife was shopping at the mall, I was sitting in the food court watching girls wearing glasses.
 I had a great afternoon, and could not quit thinking about all the nice sightings.
 When I went to sleep that night I was dreaming about it

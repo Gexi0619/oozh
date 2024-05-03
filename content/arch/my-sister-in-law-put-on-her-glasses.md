@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "After years of avoiding it, Lisa finally confronts her deteriorating vision and the fear of wearing glasses."
 ---
-
 I have been married to my wife for ten years now she is 32 years old, but she is not alone in the family.
 She is the oldest daughter, then she has a brother and sister who is now 20 years old.
 Before the wedding the engagement with my wife lasted five years, so it means that I have known Lisa for 15 years now.

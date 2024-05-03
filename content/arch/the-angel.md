@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl with poor eyesight and her teacher share a mysterious connection that leads to unexpected results.
 ---
-
 -------------
 The Angel
 -------------

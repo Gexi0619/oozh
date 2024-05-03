@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy and his best friend discover their need for glasses, leading to unexpected adventures and desires.
 ---
-
 I am the youngest in our family.
 My parents and two older sisters all wear glasses for myopia.
 I like the looks of glasses, glasses fascinate me, I love the looks of the lenses, the stronger, the nicer.

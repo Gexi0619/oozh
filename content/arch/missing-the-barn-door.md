@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Missing the Barn Door is a captivating tale of unexpected love, deception, and hidden truths."
 ---
-
 ----------------------------  
 Missing the Barn Door  
 ---------------------------- 

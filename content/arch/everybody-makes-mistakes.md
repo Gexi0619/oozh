@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Alexandra, a stubborn waitress with worsening eyesight, discovers a pair of glasses that change her perspective.
 ---
-
-                                   
 My name is Alexandra,alth ough everybody calls me Sandy. I am 5’8” and am cute, relatively thin, with big boobs and a pretty nice ass and legs, so my boyfriend Jayden tells me. I wear my hair long and in a ponytail most of the time. Sometimes it is a chestnut brown, and sometimes I lighten it back to my natural dirty blond color, depending on how I feel. For the past couple of months, I have been wearing it a kind of dark blue color, but I think I will wash that out soon.  I know I am a little nearsighted, and I know my eyesight is getting worse, but I refuse to get glasses. I graduated from high school last year with pretty decent grades, but I didn’t want to go on to college, so I am waiting tables at a restaurant. 
  
 I worked at the same restaurant for the last couple of summers. Albert, the owner, hired me when I was 15, and a few months ago, after I graduated, I asked Albert if he would keep me on if I didn’t go back to school. He said he would, but there was a bit of hesitation in his voice and I think I know why. Albert knows I don’t see very well, and he already mentioned the previous summer that I should have my eyes tested. But I hate the thoughts of wearing glasses. And I know that wearing glasses ruins your eyes even more  because my cousin Brenna, who is 2 years older than me, got glasses when she was 13. Now she is going into third year university at age 20 and she is blind as a bat without her coke bottle glasses. When she was 15, she had to get three new pairs of glasses that year, and in some other years she has had to get 2 new pairs. I don’t want that to happen to me.

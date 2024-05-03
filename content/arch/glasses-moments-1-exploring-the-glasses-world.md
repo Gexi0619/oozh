@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Discover the captivating world of glasses through a series of true, enchanting moments that linger forever."
 ---
-
 After reading the wonderful glasses stories posted here, I have a few of my own which I am tempted to tell, so here goes. All of them are true, and all of them are "glasses moments", which never leave you.
 
 I have always had a strong feeling about glasses and anything connected with eyesight, and I could never explain it. Finding sites like this has helped me a lot in that respect. I think it probably all stems from early childhood as my parents wore glasses. My father had extreme astigmatism and my mother was hyperopic all of her life. In later life, she couldn't even get glasses she could read with, and along with her glasses she used a strong magnifier which she always carried around her neck on a cord. My father kept a spare pair of glasses in his bedroom drawer, and my mother had several old pairs of hers around the house.

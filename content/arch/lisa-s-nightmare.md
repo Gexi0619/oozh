@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Lisa wakes up with blurry vision and realizes her glasses and contacts are missing, leading to a concerning eye issue.
 ---
-
 Lisa’s alarm on her phone rings its usual tune, waking Lisa just like any other morning. She stretches her arms to get blood flowing through her system and can’t help noticing that her vision is a little blurrier than usual. Thinking that it must be due to the residue that collected overnight, she blinks her eyes a few times to try and clear it up. After all, they do feel a little dryer than usual. She feels for her glasses on the nightstand next to her bed but they are not there. “That’s strange,” Lisa thinks to herself, as that’s where she normally puts them before she goes to bed. She wonders if she has worn her contacts to sleep in which case they will be in the washroom. However, she can see nothing so that must not have been the case. She gets up on her feet and carefully makes her way to the washroom, arms in front of her so that she doesn’t bump into anything. With her -7 prescription, her vision is quite blurry even though it isn’t impossible to see.
 
 Lisa crouches over the countertop squinting, as she looks for her glasses. Sure enough, they are right where she normally leaves them every morning. She is relieved to be able to see again once she has put them on. Looking in the mirror, she sees that both her eyes are bloodshot. “Oh no!” she cries out aloud, “How am I going to be able to go to school today?” Overhearing her exclaim, Lisa’s mum calls out, “Are you OK, Lisa?” to which Lisa replies, “My eyes are all red and I think I need to go see the eye doctor today.” “Did you sleep in your contacts again?” her mum then asks. That has happened a few times before but she'd never gotten an infection, until now. Lisa hesitantly says, “I don’t think so,” as she checks her contact lens case. Nothing is in there. “That’s bizarre,” she thinks to herself. After all, she is wearing her glasses and can see, so it doesn’t make any sense that she could have gone to sleep with her contacts on. Nevertheless, she checks her eyes by looking closely in the mirror and sure enough it looks like there are contact lenses in her eyes. Apprehensively, she calls the optometrist from her phone.

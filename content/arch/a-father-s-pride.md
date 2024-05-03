@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A proud father's journey as he witnesses his daughter's growth, from birth to graduation, and her struggles with nearsightedness.
 ---
-
 My wife and I sat in the auditorium of the university that our daughter Miranda was graduating from with a Masters degree in advanced childhood education.  As the graduating class began their walk into the auditorium I spotted Miranda and my heart was filled with the pride that only a father can have. The long blue gown that Miranda wore hid her nubile 23 year old body under a shapeless mass, but I knew that under that mass was a pair of perfectly formed legs that rose up into a well formed butt.  Then her body tapered into a slim waist, and above the waist were a pair of breast that, while not huge, were a bit larger than her mother’s ample breasts.  Her raven black hair cascaded down around her shoulders from under the traditional cap.   I didn’t have to see her face to know that she was a very beautiful young lady.  I had an older version of her sitting right beside me.  I could see Miranda turn her head and I felt that she was trying to see if she could spot her mom and I in the crowd. As her head turned I could see the light flash off the plano fronts of the thick glasses that she had worn since she was a child of 3, and I wondered if her corrected vision was good enough so that she could spot us in the crowd.  But then I saw a smile cross her lips and I knew she had seen us.
 
 My pride in my daughter had been there ever since that late winters day 23 years ago when I saw her little head come out from the birth canal.  Miranda had been a full term baby, and there were no complications during birth.  Her birth weight was a little low, at 7lbs 4 oz but she was perfect in every way.  She crawled at 9 months and walked at a year.  By the time she was 3 she was reading her own stories and she could turn on the computer and play her Disney video’s without parental assistance.   She could read all of her own storybooks to herself although she still wanted Daddy to read her a bedtime story before she would drift off to sleep.

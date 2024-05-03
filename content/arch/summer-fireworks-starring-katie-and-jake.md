@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter at a fireworks show brings two old classmates together, glasses and all, sparking a rekindled connection.
 ---
-
 *Just a short little fun story for a quick read on a summer night-Enjoy!
 Summer Fireworks
 

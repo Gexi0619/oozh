@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "The Ladies Club: A tale of friendship, volunteer work, and discovering the importance of vision screenings."
 ---
-
 The Ladies Club
 
 

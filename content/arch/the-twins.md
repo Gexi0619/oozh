@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A new family moves in next door, and their interactions with their neighbors reveal hidden secrets.
 ---
-
 In is story we are bringing back Jim and Marsha, now Dr. Jim Morgan the optometrist and his wife Marsha an optician. They own and operate Jones Optical [See Jim and Marsha 1,2,3 fort he story.
 
 Near the High School and a nice park was a new subdivision with middle class type homes. The Parker family had recently moved there, they had twin girls, Lindsay and Megan , who went to high school , and a younger boy David.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a loving relationship, a man's discovery of his wife's hidden hearing aid strengthens their bond.
 ---
-
 I like to think my wife still turns heads at 37.  She got her first pair of glasses for farsightedness at 14 and first bifocals at 17.  When I met her at 23, she was wearing her first progressives and went full-time not long after in large part because of her astigmatism correction changing.  For almost 10 years now she has worn trifocals, first in addition to her progressives but exclusively for at least probably 6 years.  The last couple years she's had a pair of round clear glasses with FT-35, her prescription has been pretty stable of about +2.50, -1.50 with a +2.50 add.  
  
 It was with some support from me that she was able to get over her anxiety of wearing the trifocals in public, because she definitely liked the vision better than progressives.  And she's always known I've preferred her wearing glasses.  It has even become a thing; I purposely stand close enough that she will look at me through her intermediate segments instead of the tops.   About 6 months ago we were meeting after work at a neighborhood bar for a couple drinks on our Friday night.  Afterwards we went home and were sitting on the deck, with some music on.  She was wearing a sun dress and decided to paint her finger and toenails and between the drinks and possibly her slightly teasing the exaggeration of tilting her head to look through the mid and near range zones while getting the paint on the brush to her long nails it was all I could do to wait for the polish to try before crazy.

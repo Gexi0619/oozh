@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Ryan learns a valuable lesson about the importance of wearing glasses, leading to a heartbreaking end to their relationship."
 ---
-
 If you have to wear glasses, wear them!!!!
 
 

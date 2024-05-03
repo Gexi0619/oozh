@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Suzy finally gets her own glasses, experimenting with her new vision and embracing her new look.
 ---
-
 Part 4
  
 Although she enjoyed wearing her mum’s old glasses for reading, and they certainly helped, Suzy was counting down the days until she collected her own glasses. Finally Friday came, and at the end of the school day Suzy walked into town to the High Street and in through the door of the opticians. She went to the counter and was told to take a seat. After a few minutes the same assistant as had helped her choose the frames came over and Suzy followed her to a desk towards the back of the shop.

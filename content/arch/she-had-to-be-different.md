@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Boy becomes fascinated with glasses after seeing his friend wear them, wants glasses of his own.
 ---
-
 She had to be different!
 
 

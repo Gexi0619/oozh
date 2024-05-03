@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's lie about losing her boyfriend's glasses takes a dark turn, leaving him devastated and questioning life.
 ---
-
 I thought this was gonna be the last part but it's not. I'll try to upload the next one on monday  
 ----------------------------------------------------------------------------------------------------------------
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Anna, a princess with imperfect vision, navigates the challenges of finding love in early 20th century Europe.
 ---
-
 ---------------  
 Anna's Tale  
 ---------------  

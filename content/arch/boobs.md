@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Boobs is a gripping coming-of-age tale of a young woman's journey to self-discovery amidst family turmoil.
 ---
-
 Boobs.
 
 

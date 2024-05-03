@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A devastating tornado outbreak leaves a young boy orphaned, but with determination, he builds a successful life.
 ---
-
 This story is fiction with one exception. The super tornado outbreak mentioned was very real. I was caught out in heavy rain delivering papers in one of only 2 counties in the area that did not see a tornado. That being said this story gets somewhat graphic but please remember none of the people mentioned are real.
 Rob was born March 2 1974 to parents who lived in Bradenburg Kentucky about 45 miles down the Ohio River from Louisville. Rob was a premature baby and had to spend first month of his life in a very fine children's hospital in Louisville and that probably saved his life.
 On April 3 1974 for the first time since Rob was born his parents decided to go home for the day to be with their 4 year old Daughter. A super tornado outbreak hit that day that devastated Brandenburg. Rob's parents, Sister and his Grandparents on his Mom's side who lived next door were all killed. The only close relative left was his Grandmother on his Dad's side who lived just across the Ohio River in Mauckport Indiana. The Grandmother who worked at a chicken plant in Corydon about 15 miles North took on the task of raising Rob and  getting help from very fine neighbors who would not take any money for their services. Rob's Grandmother worked until age 70 when he graduated high school and went to work at the Wal-Mart in Corydon. Rob by necessity got his driver's license and a car at 16 with money he made working on some area farms and then went to work at a couple of fast food places in Corydon. Rob even on school nights would often get home after 11 pm but never complained and did well in school.

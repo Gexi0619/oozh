@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a dystopian future, microchips control all residents and personal freedoms are a thing of the past.
 ---
-
 A Futuristic Look
 
 As the early 21st century gradually reached the 2050’s life had changed in incremental ways for the residents of the planet.  Crime had become almost non existent after the various governments around the planet had declared the ACLU and other organizations like them to be subversive organizations and had imprisoned all of the lawyers and activists that had worked for them.  Now all residents of the planet had to be implanted with identity microchips, and the penalties for breaking a law had become so severe that no one dared to take a chance that they wouldn’t be caught. There was no way to defeat the microchips, and if a person was to remove their microchip the first sensor that they walked past would bring a contingent of police, who would cart the person off to jail. 

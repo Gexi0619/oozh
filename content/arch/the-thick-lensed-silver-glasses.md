@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Karen, a young girl, is determined to wear glasses just like her older sisters, leading to unexpected consequences.
 ---
-
-                                 
 I first met Karen, the girl I was eventually going to marry when I was in grade 4 and she was a year behind me. Her family had just moved into the area, and she had 2 older sisters. At the time Joyce was 10 and was in grade 5 and Carol was in grade 7. I was rather intrigued when I first met Carol, because at age 12 she wore glasses and I had never seen another girl who wore glasses with lenses that appeared to be that thick before. Carol was in Junior High, and I only was able to see her when she walked her other 2 sisters to school in the morning. I had absolutely no interest in 8-year-old Karen at the time, but I did know who she was because of my interest in her sister Carol’s glasses. There were 4 or 5 other girls in grade 7 and 8 at the Junior High who wore glasses, but Carol’s glasses were by far the thickest of any of the girls. I really do not know why, but I was attracted to the glasses that Carol wore.
  
 When Carol was in grade 8, and Joyce was in grade 6, the girls must have had their eyes checked again, because now Joyce wore glasses and Carol’s new glasses seemed to be even stronger than her old ones. Now I was hoping that their little sister would also end up wearing glasses, because even though I didn’t have any time for girls I did think that Karen was kind of cute – for a 9-year-old, and she would look even cuter if she wore glasses.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Growing up with an aunt who wore glasses influenced the narrator's preference for women with strong glasses.
 ---
-
 I am convinced that my preference towards ladies who wear strong glasses came from my childhood.  My mother came from a family of 8, and she was the oldest of her siblings. Her youngest sister, our Aunt Karen, was born when my mom was 15.  Mom married my father when she was 18, and I was born a year later.  I was only 4 years younger than my Aunt Karen. As a result I spent a lot of time during my childhood in the company of my Aunt Karen.
 
 I don’t remember when Karen got her first pair of glasses.  There must have been a lot of talk about it in my mother’s family, because no one else in the family wore glasses.  I do know that it was likely around the time I was born, because I can’t remember a time that Karen didn’t wear glasses, and I know from conversations I overheard that Karen had worn glasses even before she had started school at age 6.  

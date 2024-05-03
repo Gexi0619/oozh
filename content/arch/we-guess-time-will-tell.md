@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl embraces wearing glasses, finding confidence and admiration, while forming a special bond with her friend.
 ---
-
 We guess, time will tell.
 
 

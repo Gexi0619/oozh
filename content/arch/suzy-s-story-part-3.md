@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Suzy goes for her first eye test and discovers the potential need for glasses.
 ---
-
 The next day was Saturday and so Suzy had a bit of a lie in, but she could hear her mum on the phone to the opticians booking an appointment. She heard her mum put the phone down and then she knocked on her door – “Suzy, are you awake?”. Suzy drearily affirmed that she was “Good, the opticians have had a cancellation at 11.30 this morning so you need to get up and I’ll take you into town”.
  
 It was going to be a much earlier start than she wanted on a Saturday, but she was intrigued by the prospect of having her first eye test and potentially getting a pair of glasses of her own.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Chelsey becomes infatuated with glasses after her teacher and classmates wear them, leading her to get her own.
 ---
-
 I am  a very lucky girl.
 I live in a nice house and my parents love me.
 My name is Chelsey.

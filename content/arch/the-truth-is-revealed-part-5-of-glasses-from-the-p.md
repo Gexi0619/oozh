@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Young Dakota Thomas discovers a mysterious connection to a stranger who is searching for powerful glasses.
 ---
-
 One afternoon during the summer after I graduated from St. John the Baptist Senior High my younger sister Eva and I were home getting supper ready for when our parents got home. Janelle, our older sister was finished with her second year at university but she had a job and was staying in the city. I heard the front door bell and I went to the door and opened it. An older gentleman, maybe dad’s age stood there. He wore a very similar pair of glasses to mine, except that mine were blended myodiscs while his were just straight myodiscs.
  
 “Are you Dakota Thomas?” he asked.

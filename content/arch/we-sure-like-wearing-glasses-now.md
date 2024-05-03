@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Amy's perception of glasses changes when her coworker and husband reveal their newfound love for wearing them."
 ---
-
 We sure like wearing glasses, now.
 
 

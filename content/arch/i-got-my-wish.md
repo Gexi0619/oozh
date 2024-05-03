@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "When a chemistry experiment causes a myopia epidemic, everyone in town starts wearing glasses - with unexpected consequences."
 ---
-
 I got my wish.
 
 

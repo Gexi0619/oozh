@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's perspective shifts when she tries on her friend's glasses and questions her own vision.
 ---
-
 He likes girls who wear glasses.
 
 

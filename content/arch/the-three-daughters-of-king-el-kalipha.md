@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Prince Mahmud is tasked with choosing a wife, but must navigate through deceit and betrayal to find true love.
 ---
-
 --------------------------------------------------
 The Three Daughters of King El-Kalipha
 --------------------------------------------------

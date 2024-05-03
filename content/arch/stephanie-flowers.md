@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Stephanie contemplates moving in with her boyfriend to save money, while also dealing with his eye sight issue.
 ---
-
 My name is Stephanie Flowers.  I’m 24 years old, and I work as a junior manager in one of the supermarkets in our town.  My shift pattern varies from one day to the next; sometimes I’m on earlies, other days I’m on lates, and I have to be prepared to work weekends as well.  Usually they’re quite good to us, and let us know a couple of months in advance what our shifts should be, but that doesn’t mean they don’t get changed around at the last minute.  That seems to happen more than it should, but as I have no real commitments, it doesn’t usually matter to me.  I’ve been working here for nearly three years now.  I used to live with my parents, but got fed up with the twenty mile drive every day, so began renting my own place a couple of years back.  Now, I can walk to work in ten minutes.  I do have a car, but don’t use it very often.  At the moment, I’m single, but have been in a steady relationship with Mike Hills, and am beginning to think about what the next step might be.
  
 Mike is fantastic.  We have a similar outlook on life.  We both love our sports.  He enjoys football and cricket, where I prefer tennis and athletics, but we’ll both happily watch anything at all.  Our tastes in music are not dissimilar, although he prefers the rock end of country, whereas I am more of a genuine rock chick.  We enjoy eating out and going to the cinema, and we have a similar sense of humour.  He works up in London, and commutes there every day.  He rents a flat about five minutes from the station, on the other side of town from me.  I could easily walk to his flat, although I usually drive. as I feel safer if I drive home, if I’m not staying over.

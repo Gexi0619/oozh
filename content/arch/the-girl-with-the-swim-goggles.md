@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A childhood friendship blossoms into something more as a boy becomes enamored with a girl and her thick glasses.
 ---
-
 During the summers, back when I was around 5 years old my mom would drop me off at daycare before she headed to work. Once a week in the afternoon the ladies at the daycare would walk us a few blocks to the community swimming pool, where there were special swim classes for children of preschool age. There were 6 of us from the daycare, and there were generally another dozen or so other children at the pool ranging in age from 3 to 6.  We didn’t learn much, but we certainly enjoyed being in the shallow kids pool, as it was pretty warm that summer and the pool was a great place to cool off.
  
 I remember the day I first went to the pool like it was yesterday. That was when I met Lauren for the first time.  I spotted this young girl with a pair of swim glasses strapped to her head, but as I watched her I saw that even with her wearing the swim glasses she would not place her head under water.  A couple of us were a little rambunctious, and we were splashing around a bit. We splashed Lauren, whose name I did not know yet and I watched as her mom unhooked the strap around her head and took what I had thought were swim goggles off her face and cleaned the water from the lenses.  With the goggles off her face I could see that what I thought were swim goggles were in fact real glasses with lenses that were so thick that they came right back into the edge of her face and they hid her eyes completely. Her mother admonished Andy and I for splashing Lauren’s glasses, and we both apologized.  After that we were a bit more careful about who and how we were splashing.

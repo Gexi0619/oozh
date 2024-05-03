@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Liana, a visually impaired former city guard, arrives at the fortress of Dasdar in search of new employment.
 ---
-
 -----------------
 Flame of Life
 -----------------

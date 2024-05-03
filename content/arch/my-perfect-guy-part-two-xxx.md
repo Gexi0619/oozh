@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In part two, Nikki discovers Mike's extreme nearsightedness and asks him to wear glasses for her.
 ---
-
 Hi, this story has sexual content.
 
 I took in consideration the comments "glassesforeveryone", "Bobby" and "Soundmanpt" did to "My perfect guy PART ONE" and I wrote part TWO a few minutes ago. Thank you so much for your feedback, it helps me a lot. Hope you enjoy!

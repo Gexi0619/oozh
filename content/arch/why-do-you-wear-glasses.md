@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Discovering the world of glasses, Amy and Jenny embark on a journey to understand their purpose and effects."
 ---
-
 Amy was the daughter of Mr. and Mrs. Jones. They lived in a nice quiet neighborhood in a small city. Amy was in grade 5, a pleasant girl and a good very inquisitive student, always full of questions , so she could learn as much as possible about the subject she was interested in.
 Her best friend Jenny, a very pleasant girl, was in her class at school. They got along well and spend a lot of time together.
 The next day at school, Peggy one of their classmates was wearing new glasses. Amy told Peggy she looked very nice wearing glasses, and asked her why she needed to wear them.  Peggy told her she had trouble seeing the blackboard. Now with wearing glasses she had no trouble seeing anything in the distance. There were 3 other students in her class wearing glasses, and Amy wondered why people wear glasses, how can they improve your vision, are the lenses that special, she would like to find that out.

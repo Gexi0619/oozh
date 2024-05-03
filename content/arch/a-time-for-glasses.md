@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Three girls compete for the attention of a dreamy new student, while one discovers his fetish for glasses.
 ---
-
-                                     
 The three girls gathered around the bank of lockers in the school hallway.  Actually they were all gathered in front of Beverly’s locker while Bev put her books from the last class in the locker and got out her coat and her backpack, which she put her homework into.  Bev had to catch a bus, while Katie and Joanne were able to walk home. Just then a new student who had started in their home room class that morning walked by on his way to the locker he had been assigned
  
 “Isn’t he dreamy.” Katie sighed.

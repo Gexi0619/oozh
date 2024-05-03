@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jeff struggles with his perfect image when he realizes he may need glasses like his friend Logan.
 ---
-
 Mr.  Perfect
 
 Jim and Peggy were college sweethearts, 

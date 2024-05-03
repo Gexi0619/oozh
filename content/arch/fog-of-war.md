@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In "Lyra Starfire and the Legion of Space," a renowned astrofighter pilot faces perilous missions and unexpected challenges.
 ---
-
 Well, here is a story I've been wanting to write for some time, it's set in the far future and concerns a fictional heroine "Lyra Starfire" - she's been mentioned in some older stories of mine - and this time we finally get to meet her. The other thing is that I'm in it (I do this quite a bit) but this time mostly not from my point of view, for a change.
 
 

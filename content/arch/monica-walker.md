@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teacher takes on triple duty as acting principal, but is captivated by a new applicant's thick glasses.
 ---
-
-                                                   
 The school where I teach does not have a large enough student body to qualify for a full-time principal as well as an assistant principal. I had been teaching here for the past 3 years, and the woman that had been doing the job of assistant principal had retired the previous spring. I was asked at the beginning of the fall term if I would take on the added duties and although the slight pay increase was gratefully accepted I wasn’t sure if the pay would really compensate me for the extra time the job seemed to be taking. It shouldn’t have been as big a deal as it had turned out to be, but the principal was off on sick leave and the bulk of her workload had fallen on me. Fortunately the school board had now realized that it was not fair to me to be doing triple duty and since the principal’s sick leave looked as if it could be a long term affair they had allowed me to hire a temporary teacher to replace myself in the classroom. On Monday I had interviewed 3 people for this position, and all three were qualified. I could easily have made my decision without taking the time to interview the 4th applicant, but she was scheduled for first thing on Tuesday morning, so there really wasn’t any sense in my not at least meeting with her.  As I came up to the secretary’s desk, she mentioned to me that my 4th applicant was seated in the office waiting for me.
  
 It is hard to get an idea of a person’s height when they are sitting so when she stood to shake my hand when I introduced myself to her I was a bit surprised that she was quite tall. I am 6’3” and she had to be over 6’ without heels. She was gorgeous, and that’s the best word I could possibly use to describe her. Her long dark hair cascaded down around her angelic face, her beauty only slightly marred by the glasses she wore on her perfectly shaped nose. They had the appearance of being quite thick and as such were likely very strong.  The lenses looked to be curved in significantly on the front, and the edge thickness had to be around 2.5cm thick at the thickest point. They were one of the strongest pairs of glasses I had ever seen on such a beautiful lady and I had to wonder just how well she could see with them, as I knew that such strong lenses meant that without her glasses her world would be nothing more than a blur of colors and blobs.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Between Shadows and Hope follows Karen's journey as she navigates love, self-acceptance, and the obstacles of high myopia.
 ---
-
 Hello friends, I present to you this little experiment that I did with the AI, it has not been my intention to bother anyone since it is not a story of my authorship nor can we consider it a story, however it was to play a little with this new tool and find out a bit within reach.  Curious fact: I made several versions by changing some parameters, the AI ​​always put a happy ending and always spoke at the end that the protagonist accepted herself with her defects and virtues. I used Google Bard. Another fact is that I did it in Spanish and then I used the translator.  Sorry if some sentences don't make sense.On some occasion the AI ​​decided that the protagonist looked for alternatives with her doctor and she underwent laser surgery, I said Oh No!, and I had to be very precise with the instructions, it was fun for me to put things on and take them off. Even after a while I had already tired of so many changes.
 
 Between Shadows and Hope (The AI ​​selected the title)

@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A baby's eyesight can be affected at birth, leading to a lifetime dependence on corrective lenses.
 ---
-
-                            
 When a baby is born, at birth they can detect light and motion, and can also make out faces and large objects. After the first month a baby can make eye contact and focus on objects about 11 or 12 mm away. Over the next few months, they gradually become able to focus on most items and during the first year they generally become slightly farsighted, which later turns to emmetropia as they get older. Once in a while, in a very rare case, a baby remains extremely nearsighted. This is really an exception to the rule and is more likely to happen in babies who are born prematurely and require oxygen at birth, which is called retinopathy of prematurity or ROP. But sometimes a baby’s eyeballs just never develop past the nearsighted part and then they go through life dependent on very thick glasses or contact lenses to be able to see much of anything.
 
 In these rare cases, whether the child has decent vision depends on if the parents are on the ball or not. If the very nearsighted child does not get corrective lenses before he or she is at least a year old, the future development of their vision is in grave danger. They can develop strabismus, possibly nystagmus, a possible requirement for prisms in their glasses as well as focusing problems that leave them with low vision for life. And if left uncorrected until they are over the age of 2, their binocular vision does not develop properly. Most ophthalmologists do not ever see a child that is just plain extremely shortsighted from birth. Their pediatric clients generally have ROP, or other problems such as Ocular Sticklers or Marfan’s Syndrome or simply muscle imbalance requiring prism correction or an operation.

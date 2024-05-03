@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the surprising reason why Cathy needs to wear glasses, even though she doesn't have myopia.
 ---
-
 Now, I know, why you like to wear glasses.
 
 

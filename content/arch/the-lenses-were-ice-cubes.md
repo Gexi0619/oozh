@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young man's quest for love leads him to discover the allure of girls who wear glasses.
 ---
-
-                         
 Sometime between grade 7 and grade 10 I found myself becoming interested in girls. The really good looking girls seemed to already have boyfriends so I started taking a closer look at the other girls, and I discovered that there were a lot of pretty cute girls that had to wear glasses. Some of them also had boyfriends but there were enough girls wearing glasses that were without boyfriends and were available for me to ask them out.  That is how I became extremely interested in glasses wearing young ladies, and although I wasn’t what one would consider a stud, I now had my share of dates.
  
 My affinity towards dating glasses wearers lead me into doing a bit of research on why people needed glasses. In young people, which was the category that most of the girls I dated fell into, the most common reason for girls to need glasses was because they had myopia. And of course I also found out that there were 3 classes of myopia. Low was for those people that needed between -0.50D and -3.00D of correction. Mild was where most of the young ladies I dated fell, and that was between -3.00D and -6.00D. High myopia was for those that needed over -6.00D of correction, and I don’t think there was even one girl at my school that fell into the high myopia range.

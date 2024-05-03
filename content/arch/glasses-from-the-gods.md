@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "An ordinary man discovers his new glasses have extraordinary powers, granting his every wish, with unexpected consequences."
 ---
-
 ----------------------------
 Glasses from the Gods
 ----------------------------

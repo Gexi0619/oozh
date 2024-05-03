@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jessica's chance encounter with an old woman promises to change the dynamic between her and David forever.
 ---
-
 Jess looked across the office at David. How many years had they known each other? Their history went back a good number of years. Back to when they’d been at University together. Now, four years into her career as an architect, fate had placed them once again on the same path. 
 
 David had joined the firm four months ago. Jess shuddered at the memory of their initial encounter when Rick, their boss, had shown David around the studio. Jess had instantly recognised David, how could she not, and was about to make an embarrassment of herself by being overly familiar, before she realised that David didn’t seem to recall her at all.

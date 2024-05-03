@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man contemplates reconnecting with a childhood friend while navigating the complexities of his wife's illness.
 ---
-
 Shortly after my wife and I moved to a different area of the country than we had spent most of our married life in I heard from an old friend that a girl who had been in my class throughout grade school and high school was living in a town about a 4 hour drive away from the town I now lived in.  He gave me her phone number, and I added her to my contacts list with the full intention of calling her as soon as I could arrange to take a trip to where she now lived. Before I could do that though my wife fell ill, and although she would never recover, at least after a year of being almost incapacitated she had reached a point where I could leave her alone for the day once in a while.
 
 I had told my wife that Patsy Warner now lived in the area and that someday I would like to visit her, but that was not met with a resounding cheer from her.  Although my wife had gone to a different school she had known Patsy through a mutual friend and as a young lady Patsy had been one of the prettier girls in school. I could understand why my desire to visit Patsy was meeting with a bit of resistance from her, but there was no way I could tell her that there was no intention of me replacing her with Patsy after the illness she was struggling to beat had taken her away.  Patsy was about the same age as I am, and there had been absolutely no interest on either side when we were in school. We had been friendly, yes, and we had been in the drama club and the glee club together. We spoke in the hall, and when we met on the street, but Patsy was always going with one of the older guys.  Anyway, the biggest obstacle for me was that Patsy was not one of the girls who wore glasses, and I had absolutely no interest in going after a girl who did not wear glasses with a nice minus prescription.

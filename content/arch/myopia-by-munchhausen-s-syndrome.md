@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman reflects on her childhood, suspecting her mother had Munchausen's Syndrome and caused their constant illnesses.
 ---
-
 Now that I am an adult, as I look back at my life I am convinced that my mother was crazy and had no business ever having children.  I remember as a child sitting in a hospital peering at things that I really couldn't see very clearly through my thick glasses waiting for the doctor to look at me to see why my stomach ached. My mother would give the nurse on duty a list of things that made the nurse suspect acute appendicitis, or some other sort of affliction that caused me to vomit, or to have diarrhea.  But then, when I finally saw the doctor, he would end up giving me something to settle down my upset tummy, or to stop my diarrhea. I think that mummy was really disappointed that I was not having an appendicitis attack and needed an immediate opperation.
 
 Before my mother died I spent a lot of time reading and I suspect that mom was suffering from something called Munchausen's Syndrome.  Both my younger sister and I seemed to be sickly children. We spent a lot of time at the doctor's office and at the emergency rooms of various hospitals, and while I can't really prove that mom was the cause of our illnesses I can see no reason why Shelly and I were both sick almost all of the time, as we are now very healthy adults.  I suspect that this would not have been the case if mom hadn't lost her job and was arrested for theft for the second time when I was 14, and Shelly was 12.  We were both placed in the custody of Children's Aid when mom was sent to prison.  Since we were older girls, the chance of us being adopted was slim, so we ended up staying in the system until we were both 18.

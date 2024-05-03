@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A struggling psychiatrist, haunted by a past tragedy, encounters a patient with a mysterious agenda.
 ---
-
 The sign on the door read “Andrew Oldham PsyD.MD “ and as I opened it and walked into my bare waiting room I reflected on the years of hard study and training that I had gone through to become first a psychologist and then, after further studies and training a licensed psychiatrist. As I came through the door I glanced over at the receptionist’s desk which had a sign on it reading “Please be seated, the Doctor will be with you at your appointed time.”  I had not been able to afford a receptionist for a couple of years now, and while I wondered if the message on my answering machine to “please leave your name and number and the Doctor will return your call” put a lot of people off, I couldn’t help it.  I just wasn’t making a lot of money and my student loan payments were killing me.
 
 I didn’t think I was a lousy Psychiatrist, but I had gotten a bad rap early in my practice a couple of  years ago when one of my patients carried a Glock into his school and let loose in his classroom, killing a very popular girl and wounding 4 others before he was himself killed.  Because I had been treating him I was considered to be incompetent for not spotting the signs that he was violent, and was about to commit this horrific act. Even the state medical board had called me in front of them to defend myself and, while the hearing had not happened yet I was confident that the tapes I had kept of my sessions with him would show there was nothing violent about him in his sessions, but would instead show him as a scared young boy who was being bullied by his classmates. Still, there was a cloud hanging over me, and I had lost a number of patients and had been forced to cut back on my expenses.

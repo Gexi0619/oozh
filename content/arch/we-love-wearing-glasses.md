@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's fascination with glasses leads her on a journey towards adopting them herself.
 ---
-
 We love wearing glasses
 
 

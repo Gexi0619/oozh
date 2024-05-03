@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the life-changing power of glasses in this gripping story of self-discovery, friendship, and newfound clarity.
 ---
-
 They, are my type !
 
 

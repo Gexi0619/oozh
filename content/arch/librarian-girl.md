@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Mystery Woman: A librarian captures the attention of a curious bystander, igniting a captivating search for connection."
 ---
-
 ------------------
 Librarian Girl
 ------------------

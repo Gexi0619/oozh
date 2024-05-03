@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man persuades his girlfriend to wear -85D glasses over +30D contacts, pushing the limits of her eyesight.
 ---
-
-                               
- “Look Jimmy, I already increased my glasses prescription from the -20D I was wearing when I first met you at 16 all the way up to -40D over the past 10 years we have been together.  But that’s it. I am not going to go any higher for you. I have reached my limit. And -85D glasses – you must be nuts!” Laura exclaimed angrily.
+“Look Jimmy, I already increased my glasses prescription from the -20D I was wearing when I first met you at 16 all the way up to -40D over the past 10 years we have been together.  But that’s it. I am not going to go any higher for you. I have reached my limit. And -85D glasses – you must be nuts!” Laura exclaimed angrily.
  
 “Honey, you don’t understand. I don’t want you to make your eyesight any worse. What I am suggesting is that you wear the -85D glasses over +30D contact lenses. I was able to find a pair on the internet that are brand new, and I am the winning bidder. They should be here any day now. And I have ordered a pair of +30D contacts in the same size that fit you when you were 18 and we didn’t want to let your parents know that you were trying to increase your prescription.” I replied.
  

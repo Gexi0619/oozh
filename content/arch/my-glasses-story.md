@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An honest and relatable tale of growing up with glasses, navigating teasing, and the impact on self-esteem.
 ---
-
 My glasses story
 I had my first eye test when I was 8 years old shortly before the summer holidays where  I was told I needed glasses. We didn't know I was short sighted until a teacher pointed out that my poor performance at school in relation to my brothers may be down to issues with my vision which proved correct.
 It was an understatement to say I really wasn't happy about the thought of wearing glasses. At first I did everything I could to avoid wearing them until I spent the long summer school holiday wearing them 24/7 under my mum's supervision. By the time school came around I was so used to them when I took them off everything was too blurry so I had to become a reluctant full time wearer in spite of my feelings about them. The teasing and name calling that came my way in school was hard to deal with me being shy and sensitive. I was very thin and I am very fair so my big black NHS glasses really stood out and made me a bit of a target for the bullies. 

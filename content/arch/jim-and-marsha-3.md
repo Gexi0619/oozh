@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Marsha discovers she needs glasses, leading to newfound confidence and a career path in the optical industry.
 ---
-
 Saturday morning Marsha and her mom took the bus to go to the mall for their eye appointment. They entered Jones optical
 and were received by a friendly lady , who asked them to fill out some forms.
 Marsha was first to go in for her test. she went trough the routine of the puff test reading the chart and the phoropter

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A girl's mother finds love with a man who has a glasses fetish, leading to unexpected discoveries.
 ---
-
 I now have a glasses, fetish.
 
 

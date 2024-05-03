@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A family's experience with glasses unfolds as their children discover the benefits and embrace their new frames.
 ---
-
 My mother told me .
 
 

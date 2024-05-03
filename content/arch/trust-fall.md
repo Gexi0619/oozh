@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Cinderella embarks on a trust-filled adventure blindfolded, relying on her lover for guidance. Will she find safety?
 ---
-
 "Cinderella" was my lover. I called her that because I felt like I had found the one. She wore minus 10 lenses, and because of corneal scarring could not be fully corrected. BCVA, my guess, 20/40, but she had trouble at all distances--even close up--because of the corneal abrasions. She was a beautiful, built, sweet and shy blonde. Natural blonde. (I checked.)          Here's our story:
 
 Trust Fall

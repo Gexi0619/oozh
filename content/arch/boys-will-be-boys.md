@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A group of boys discover the allure of wearing glasses and explore their newfound appeal and vision.
 ---
-
 Boys will be boys.
 
 

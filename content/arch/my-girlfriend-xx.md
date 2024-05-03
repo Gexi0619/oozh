@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young optician, Ashley, finds friendship and potential romance with Emily, a fellow glasses-wearing woman.
 ---
-
 My girlfriend, xx
 
 

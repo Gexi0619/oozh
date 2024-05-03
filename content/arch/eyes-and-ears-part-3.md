@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In "Eyes and Ears part 3," the protagonist uncovers a vision problem caused by iPads at a prestigious school.
 ---
-
 Eyes and Ears  part 3 
 
 Time has pasted  very fast and as you might have guested  I hired Vanessa as my Nanny.this had proved to be a good decision.she worked very hard,the children liked her and my meal was always ready for me when I got home.

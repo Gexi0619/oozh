@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Unrequited love, newfound glasses obsession. Will Megan find love with the help of her spectacles?
 ---
-
 If you like a guy to notice you, start wearing glasses 
 
 

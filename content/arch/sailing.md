@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A troubled 13-year-old girl finds solace on a sailing trip, but discovers a mysterious pair of glasses.
 ---
-
 I, Francis, was a 13 years old girl while the first waves of puberty shook my and my parents life. We had a hard time together, I could not help myselfe, but I was so nasty to them, that today I am very embarrassed about many of the things I had said and done to my parents in these months. 
 This was the reason, why my parents decided to send me on a summertrip on my own, they seemed to need a rest from my aggressions. I had the choice between going to a camp of pathfinders in the mountains or on a sailingship on the dutch coast. I decided to go on the ship. 
 After I arrived there travelling by train, I was welcomed by the captain of the boat and the youthleader of the organisation that offered the trip. I was the first one of the group that arrived and it would be another day till the trip started. So I had the choice which cabin I wanted to sleep in on the boat. I liked a small cabin with a round little window just close to the entry of the sleeping deck and went in to deposit my gear. I was surprised to find out that it wasn’t cleaned yet. “Oh, sorry our cleaning staff is coming later, this still is in the state as the previous group had left the boat.” The captain said.  So I helped myselfe and took care of cleaning up the little cabin, because I had the desire to rest after the long travel. I pulled out the bedsheets and when depositing them in front of my cabin something hard fell on the floor. I wondered  what it was and found a black glassescase. 

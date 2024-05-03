@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Amber and Janice, popular but shallow, have their world turned upside down when they need glasses.
 ---
-
 The examiner was right, we need to wear glasses. 
 
 

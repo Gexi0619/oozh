@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man encounters a bewildered girl from the year 1129 and embarks on a quest to help her.
 ---
-
 On account of the current events an episode of my life comes into my mind which happened more than twenty years ago.
 Like every Friday when the weather is fine in this season of the year I searched for mushrooms in the forest. Nobody is there save me and I am alone then what I prefer. Just strolling around, suddenly a young girl stood in front of me in rather ancient clothes in the middle of a clearing, nearby the ruins of a castle. She looked somewhat confused.
 "Hello".

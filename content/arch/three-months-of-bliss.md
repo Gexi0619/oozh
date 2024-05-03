@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young man on a budget meets a mysterious woman with thick glasses, sparking a captivating connection.
 ---
-
-                               
- I am one of the fortunate ones of this generation. My grandparents left me a trust fund that paid out a fixed amount yearly that I was able to use for my education, and after I graduated I found that I still had enough money saved up that, if I was careful, might allow me to spend the summer trekking around Europe. This is how I was able to afford to be in Venice and although my accommodations were not luxurious, I had a clean bed in a tiny room with its own washbasin.
+I am one of the fortunate ones of this generation. My grandparents left me a trust fund that paid out a fixed amount yearly that I was able to use for my education, and after I graduated I found that I still had enough money saved up that, if I was careful, might allow me to spend the summer trekking around Europe. This is how I was able to afford to be in Venice and although my accommodations were not luxurious, I had a clean bed in a tiny room with its own washbasin.
  
 As I said, I was being careful with my money. All across Europe there were these places that were set up for travelers on a low budget. The rooms contained a single bed, and a washbasin and that’s about all. Oh, and there was often a chair to set your backpack on.  Each room looked to be about 6’x 8’ and had a small window that allowed some natural light in. To use the shower or a toilet you had to walk down the hall and since there were about 8 rooms on each of the three floors you had to wait for the bathroom to be unoccupied before you were able to use it.
  

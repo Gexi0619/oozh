@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl named Abbey is devastated by her family's move but finds potential friends in her new town.
 ---
-
 I did not want to move.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a desperate attempt to please her husband, a woman begins smoking and falls deeper into addiction.
 ---
-
 4 
  I must get home Annabelle will be arriving in about a hour
 As soon as I started to think about Annabelle my body started shaking ,I had never smoked outside,but now was the time to forget all my inhibitions. I needed a cigarette,but I had not brought any with me.

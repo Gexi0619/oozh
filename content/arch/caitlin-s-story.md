@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a shocking turn of events, a mysterious virus leaves a class of students with irreversible myopia.
 ---
-
 Hi
 
 I have no talent for writing stories, and haven't written any since I was at school.  However considering the slowness of this forum, lately, I thought that I would try to write one, based on an idea I had prompted by the current situation.  Hopefully no one will be offended by the subject of the story.

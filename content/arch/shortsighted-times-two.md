@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A nearsighted girl's journey from the jungles of Brazil to discovering her own vision and truth.
 ---
-
 My parents were shortsighted – in both senses of the word.  My mother had been born severely shortsighted, and my dad had quite a strong prescription for his myopia as well. But the real problem with their shortsightedness was that it had gotten them killed, along with maybe my twin brother and sister. No one knew for sure, and the bodies of my siblings had not been found with my parents bodies, so there was a chance that they were still alive, stumbling myopically around the jungles of Brazil.
 
 My dad had gone through school to become a minister, but after graduation he chose to become a missionary. Before he took up his post after he graduated from theological school, he married the extremely nearsighted lady who gave birth to me in a hut with a dirt floor somewhere in the jungle.  My mom was a nurse, and I am sure that she was a great help to my father, living so far from civilization.  And if I sound a little bitter or sarcastic about this, it is likely because I am. 

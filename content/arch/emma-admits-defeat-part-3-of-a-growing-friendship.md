@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In Part 3 of A Growing Friendship, Emma's mom insists on an eye doctor appointment, leading to surprising results.
 ---
-
 Below is Part 3 of 3...continued from the A Growing Friendship thread (Some adult content). Enjoy!
 
 That Friday, with just a week left before Emma would return for her last semester in college, she woke up and once again headed downstairs to make breakfast. Her mom was in the kitchen, her dad already had left for work.

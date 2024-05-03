@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "18-year-old student discovers need for glasses, reluctantly embraces new prescription to combat headaches and improve vision."
 ---
-
 I used the word MY for the first time 
 
 I'm 18 and have just started university. It's very different to being in 6 form.

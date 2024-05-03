@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "The young woman struggles to see her friends at the race, unaware of her worsening eyesight."
 ---
-
 Hello dear forum, my name is Brillenstein and like most of you, I share a certain passion for glasses. Today I would like to introduce you to my little self-written story. A story about a young woman from 1798, when glasses were anything but common. As you will soon notice, English is not my native language. However, I hope that you enjoy my little story and I am looking forward to your feedback.
 
 

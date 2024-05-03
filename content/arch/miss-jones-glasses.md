@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Nicole, a young girl, discovers the allure of glasses and longs to have her own. Will her wish come true?"
 ---
-
 The new school year started, Nicole a pleasant lively girl was happy to go into grade 4.
 When she arrived at school and saw all her friends, and there was her best friend Carolyn, they were happy to see each other and had lots to talk about.
 They had a new teacher this year, Miss Jones a tall brunette, with a kind face and a big smile and wearing glasses.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter with a coworker named Amber reveals a surprising twist involving glasses and friendship.
 ---
-
 This is just something that happened a couple of years ago.
 
 

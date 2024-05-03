@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A curious child discovers their mother's reading glasses, leading to unexpected consequences and a secret to keep.
 ---
-
 Author's note:  This is a sequel to the story Reading Glasses or Seeing Glasses?  I believe it stands in its own right, but if you are reading the stories on this site, starting with the newest first, I suggest you look down a bit further and read this in sequence.
 
 I’m not quite sure what made me do it.  Many times, I had been told that I needed to read more if I wanted my reading to improve, but I always seem to have something which seemed more important, so my reading was mostly confined to what I did when I was supervised by Mum or Dad.

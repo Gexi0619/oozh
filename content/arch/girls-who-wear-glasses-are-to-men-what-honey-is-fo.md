@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kelley and her best friend Ashley participate in a fashion show, discovering the power of glasses and self-confidence.
 ---
-
 My name is Kelley, I will be going to high school next fall.
 I am an only child, but I am lucky to have Ashley, who has been my friend since grade one, she is like a sister to me.
 My mother wears glasses, she told me she is nearsighted, and I understand that she can t wear contact lenses. 

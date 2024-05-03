@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: David goes from reluctant glasses wearer to popular student as girls and a new love interest admire his frames.
 ---
-
 David is a handsome, athletic and popular high school student, ready to start his last year in high school and looking forward to it.. Except he has no idea what reaction to expect about his new look.
 During the summer his mother had insisted he get his eyes examined. She wore glasses and had noticed that David was squinting quite  a bit, she knew the signs and was sure he needed to wear glasses.
  After the eye exam David was told he was myopic and had some astigmatism and should be wearing glasses.

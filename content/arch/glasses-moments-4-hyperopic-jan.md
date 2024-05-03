@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the thrilling tale of a young man's pursuit of love and his affinity for girls in glasses.
 ---
-
 Continuing my true stories of glasses, girls, life, and the ups and downs of combining all three, I want to concentrate now on my tentative ventures into adult life. Of course, I will stick to the stories where glasses are involved.
 
 I was always attracted to girls in glasses first and foremost, but as life would have it, myopic or hyperopic girls didn't seem to be too prolific, or indeed didn't socialise or appear in pubs, clubs, or dance halls as much as I would have liked. Having just had my first ever serious encounter with a girl, who happened to be seriously myopic (see Glasses Moments 3 - X), my appetite was well and truly whetted, and I made it my life's mission to find a girl with poor eyesight as my life partner. I wasn't prepared for it happening quite so soon though.

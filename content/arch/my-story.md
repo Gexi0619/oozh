@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In her pursuit of swimming lessons, a 19-year-old girl with low vision discovers a shocking truth about her eyesight.
 ---
-
 Hello! My name is Sam and I wanted to share my story... Feel free to comment and please excuse me if the grammar is not perfect, English isn´t my first language so I may have some mistakes Lol... Hope you enjoy it!
 
 Being a 19 year old girl with very low visión isn’t easy. I remember when I was 6 years old, everybody wonder why I wasn’t like every other normal kid who played every evening softball, football, soccer or any game that involved a ball and to be honest I never found it interesting. I coudn’t understand the games, in fact I couldn’t understand what they were trying to do.  

@@ -7,12 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When two siblings discover they can see perfectly with other people's glasses, they keep it a secret.
 ---
-
-                                             
- 
 My older sister and I grew up in a middle class suburb of a major city. I was mildly jealous of my sister when she went off to kindergarten, and fortunately I was able to follow her only a year later because of the time of the year that our birthdays fell. We both enjoyed going to school, and we made friends easily. With only a year’s difference in school grades, even though she was 18 months older than me, I was allowed to hang around with Janelle and some of her friends.
  
 Our parents wore glasses. Apparently mom had very bad eyes and her glasses were twice as strong as our dads were, but dad was pretty dependent on his glasses and, like mom, he never took them off. Janelle and I sometimes talked about our parent’s glasses and we figured that since they both wore glasses we would likely need to wear glasses as we got older.

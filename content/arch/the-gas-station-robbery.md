@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In 1975, Brad's decision to delay taking driver's ed raises questions until a mysterious encounter at the gas station.
 ---
-
 Brad Ainge of Bedford Indiana was turning 14 in 1973 and it seemed all he talked about was taking drivers education the second semester of his sophomore year. Brad's 16th birthday was in April of that school year and as long as he passed both the in car and classroom part of the courses he would be eligible to take his drivers license test as soon as school was out. Brad during the summer after turning 14 went to stay on his Uncle's farm in Iowa where of course the main crop was corn. The Uncle taught Brad to drive all manner of farm equipment and he was good at it and made good money because his Uncle ran a very successful farm. Brad also learned to drive an old Chevy truck with a 3 speed manual transmission shifted on the column. That transmission is said to be the hardest manual to drive. Brad said he was saving up money for a car when old enough.
 Brad who was 15 and at the start of his sophomore year and could have taken drivers ed. that semester elected not to. The biggest reason was the semester ended in January and Brad could not get his license until late May when he reached 16 years and 1 month which then as now is the lowest age teenager can get a drivers license providing they pass both the in car and classroom part of the course. In 1975  A's or B's in both parts of the course meant only a written test and a vision screening and no in car test.
 Brad when picking his classes for the second semester said he was going to wait until the summer to take drivers ed. Brad though he knew the basics of driving from his time on the farm had no experience in traffic. The summer session allowed more behind the wheel time and would only delay getting his license until August. Brad's parents were ok with this thinking more behind the wheel time was a good idea. The surprise comes when Brad elects not to go to summer school even just for drivers ed. Brad who had already made a B on the classroom portion of the course says he will take it the first semester of his junior year. Brad's parents are confused and even a little angry about this. Brad if he needed a ride somewhere had to rely on his parents most of the time.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Mark's journey of self-discovery through glasses leads to newfound confidence and unexpected relationships."
 ---
-
 My name is Mark.
 I have an older sister, Terry, I think she is a very smart girl.
 She has good marks at school, likes sports. and is always very nice to me.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Siblings reluctantly navigate their shared activities while dealing with their own insecurities and family dynamics.
 ---
-
 One of the main problems with having a sister who is three and a half years younger than you are, especially when you’re of primary school age, is that you always have to do things together – whether you want to or not.  We both preferred to keep ourselves to ourselves, and would invariably spend our free time shut away in our bedrooms, not talking to each other.  However, when one of us had to go out, the other one got dragged along as well.  I wasn’t over-keen at being there when we went to drop Chelsea off at some party or other, and the fact that she spent most of her time on the swings and slides when I was playing football for my team on a Saturday morning seemed to indicate she felt much the same way about my activities.  At least we didn’t spend our time squabbling and arguing over the most insignificant little things, like we did when we were dragged out round the shops with one or other of our parents.   Whenever we went out, the other one was forced to come along too, as we were too young to be left alone.
  
 If I had to pick my least favourite outing, it had to be the termly meetings we had with the teachers at the Primary school we both went to.  We had to listen to each other’s strengths and weaknesses, and invariably ended up arguing about them on the way home.  The reports seldom seemed to vary much, either.  “David is very intelligent but could work a lot harder if he wanted to.”  (It was true, but as I was in my final year at the school, I felt like I was one of the big boys, and I knew exactly what I was doing.)  “Chelsea tries really hard in class, but she is a year behind her peers in terms of her reading age.”  Every time we had these meetings, the outcome was the same.  I was made to spend my time doing homework in the dining room, and Chelsea had to spend half an hour each night, reading – either on her own or with Mum or Dad to listen to her and help her with the words she didn’t know.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter leads to a heartwarming connection between two strangers with disabilities, defying societal expectations.
 ---
-
 It was a lovely sunny morning,I had dropped my car off at the local garage for repairs and joined the back of the long que for the bus,people were complaining that the bus was late as usual.When it eventually arrived people started pushing on ,I could see a young girl in a wheelchair start to push herself on to the bus then reverse off other people got on,as I got to the door he said sorry full,you will have to wait for the next bus.
 The young girl in the wheelchair was crying,I asked her why she did not stay on the bus,she said there was Already a wheelchair user on and the bus only had a place for one wheelchair,and she would be late for her hospital appointment.as the next bus would be in one hours time.That was also going to be a problem for me,so I told her I was going to ring for a taxi and would she like to accompany me to town and the taxi could drop her off at the hospital,That would me very kind of you sir she said,the only problem is I need to stay in my wheelchair,that's ok I said I will order a taxi that has wheelchair chair access.
 We had a nice chat on the way to town about the weather and the busses,she said she normally went on the later bus as it was not as full, but today she had to go to hospital,I did not like to ask her about her appointment or why she was in a wheelchair. She said her Name was June and thanked me as the taxi driver help her out.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A boy's struggle with vision leads to a life of constantly changing glasses until a surprising conclusion.
 ---
-
 A small boy is growing up.
 As he approaches 5 years old he notices he can not see things his mother asks him about down the street.
 His mother questions this and takes him to an eye doctor.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teenager discovers the world of glasses and realizes there's more to vision than meets the eye.
 ---
-
 My name is Jenny, I am 18 years old and in my last year of high school.
 I have 2 brothers,Dave and Jim , who are in university.
 Jim and Dave both wear glasses ,there glasses have the type of lens that makes your eyes look bigger.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Identical twin sisters navigate life and mischief through their shared glasses, bringing confusion and laughter along the way."
 ---
-
 John and Bernice Younger were thrilled when the pregnancy test showed that Bernice was, indeed, pregnant.  They had been trying for several years, without success, and were awaiting an appointment for IVF treatment when the pregnancy was confirmed.  At the first scan, it was also confirmed that they were expecting twins, although they chose not to find out whether they were boys or girls, preferring to be surprised when they were born.
 
 In due course, John and Bernice became the proud parents of two healthy baby daughters.  It took them a while to choose names they both liked, but eventually they settled on Georgia and Olivia.  

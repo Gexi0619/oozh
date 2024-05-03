@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl is stranded on an unknown planet, while a plane crash survivor wanders in search of help.
 ---
-
 -----------
 Survival
 -----------

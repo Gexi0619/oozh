@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Aurora embarks on a new adventure at Serenity University, rooming with familiar characters from beloved stories.
 ---
-
 Dieter is one of my favorite authors. He wrote many great stories that he posted on Bobby’s old website. When the story section opened up here on Vision and Spex Dieter posted 2 stories – Transgressions and The Photographer, but he has not posted any tales since the middle of 2012. I hope he is still around, but something is not right if he is not writing because his talent at creating stories that were different is really missed. In Dieter’s honor I have taken Aurora, the main character from his story ‘The Storm”, and I have sent her off to Serenity University.
  
 At Serenity University Aurora meets all the girls from Serenity. Amy Reed first showed up at Serenity in a story called “The Eyes of Amy. There she puts on the glasses of her roommate Breena and wears them because she thinks they are her glasses and she has to wear them. This story was written by Hikari originally and I took the story and edited it a little and he posted it on the internet. Then Zakalwe entered the picture and wrote a story with the main character being a rebellious girl named Kacee. This story is called Kacee’s Rebellion and Kacee smashed her own glasses on purpose, but when the school replaced them they accidentally gave her the glasses that belonged to her roommate Rachel Koch – nicknamed Coke Bottles by Kacee. Kacee eventually needed to wear Rachel’s glasses to see, and then the following year when they returned to school she took Rachel’s new, stronger pair and wore them, forcing the university’s optical department to get another pair for Rachel.

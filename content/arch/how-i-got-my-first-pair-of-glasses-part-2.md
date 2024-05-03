@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a surprising turn of events, Elizabeth explores her newfound love for cigars and stronger prescription glasses.
 ---
-
 William gave a big smile.”Shall we have coffee in the garden dear”
 
 “It's so nice sitting out here dear,can we come here often now we are together”

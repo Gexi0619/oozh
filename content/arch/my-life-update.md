@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man's life changes when a mysterious woman lends him reading glasses that unlock unforeseen consequences.
 ---
-
 Please read  MY LIFE first 
 
 Life has changed a lot since I last wrote

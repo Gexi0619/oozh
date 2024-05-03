@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: The protagonist explores the world of glasses and optometry in a 1920s rural village.
 ---
-
 The new glasses.
 
 

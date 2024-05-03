@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In the depths of a London park, a young woman's glasses are stolen, leading to a mysterious adventure.
 ---
-
 ----------------------------------------------------------------
 The Phantom Glasses Stealer of Old London Town
 ----------------------------------------------------------------

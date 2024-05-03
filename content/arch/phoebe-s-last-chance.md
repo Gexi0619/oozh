@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Phoebe must face her fears and embrace the reality of her deteriorating vision before it's too late.
 ---
-
 Phoebe's Last Chance
 
 

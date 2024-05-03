@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Josh's world is turned upside down when his new neighbors' glasses spark a desire for his own."
 ---
-
 That is a big decision
 
 

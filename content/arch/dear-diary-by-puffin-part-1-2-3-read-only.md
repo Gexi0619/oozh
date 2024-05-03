@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: As Kirsty's vision deteriorates, she struggles to get new glasses amidst the financial strain on her family.
 ---
-
 Dear Diary I
 -------------
 Dear Diary

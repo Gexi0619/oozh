@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Sarah's life takes an unexpected turn when she realizes she needs glasses, bringing new perspectives and challenges."
 ---
-
 Sarah is my name, I graduated last spring, and now am a registered nurse, and work in our local hospital.
 I am happy with myself, I have a good job, and like my looks. I have a nice head of wavy hair, that I am very proud of, and a steady boy friend.
 Life is good, I love my job, I like being a nurse,

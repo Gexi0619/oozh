@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Follow a girl's journey as her vision deteriorates and her dependence on glasses grows stronger."
 ---
-
 I sat in the passenger seat of the car with a lot of hesitation.  Jan, my older sister was about to get behind the wheel, and riding with Jan was a little like taking your life in your hands. Her glasses, which she had reluctantly gotten when she was 16 only because she couldn’t pass the vision exam at the DMV, laid open on the dash, and a few years of sitting in the sun had warped the frames enough so that when she put them on they sat crooked on her face.
 
 When I was 8, I had noticed that there were things in the distance I couldn’t see as clearly as my friends could.  So, I told Mom, and she made an appointment with an optometrist.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An unexpected reunion leads to a friendship with two couples, but secrets and glasses change everything.
 ---
-
 Let us make a deal!!
 
 

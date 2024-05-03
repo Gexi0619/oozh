@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A tale of love and fascination unfolds as Mya, with her myopia, captivates in the night.
 ---
-
- 
 My myopic Mya
 Was a beautiful sight
 She removed her clothes

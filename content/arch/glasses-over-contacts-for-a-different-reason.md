@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A high school senior's journey from reluctant glasses-wearer to potential contact lens wearer unfolds, revealing surprising eye changes.
 ---
-
 This story is fantasy but I wonder if something like this really happened.
 
 I'm now an 18 year old high school senior and like just about all schools in the US we are out this time for the year. I've confirmed since I have the credits and requirements to graduate I will not have to attend high school after this year. I'm now considered a high school graduate by the school system.

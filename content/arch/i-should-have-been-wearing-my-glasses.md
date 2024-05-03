@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In denial of needing glasses, Jenny's stubbornness leads to a life-changing accident that forces her to face reality.
 ---
-
 My mother always told me, I am the most stubborn of her three children.
 Peter, Ashley, and then me Jenny.
 The whole family wears glasses, except me.

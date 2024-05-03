@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's surprising discovery during a routine eye exam leads to a new perspective on herself and her relationship.
 ---
-
 The importance of an eye exam.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Little did Robyn know that stepping into Jessica's shoes would not only test her resilience and intelligence but would also lead her into a world of danger, secrets, and a mysterious organization determined to keep the truth hidden. In order to survive, Robyn would have to rely on her wits, trust in her newfound abilities, and break free from the blindness that had consumed her life.
 ---
-
 Breaking Blind
 
 Preface: This is a purely fictional story written by myself, a long-time lurker in the community. Contrarily to what the title suggests, it is not at all a story about blindness; the term is used figuratively. Enjoy.

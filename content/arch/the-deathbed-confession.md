@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A shocking deathbed confession reveals a mother's deception in a gripping tale of family secrets and myopia.
 ---
-
-                                   
 My sister and I met for lunch today, the first time we had seen each other since mom’s funeral 3 weeks ago. Just prior to her death mom had made a deathbed confession to the two of us, and I must give my sister credit, because she didn’t loose her mind over what mom had told us. I was totally shocked myself, but the confession wasn’t going to change anything, and I also felt that what was done is done.
  
 For 35 years I had believed that my sister and I had each been born with a severe case of progressive myopia. My sister, who was a year older than me has a bit stronger minus prescription than I have, as she is right around -30.00D while I am only around -26.50D. But when you are a -26.50D myope, there isn’t a whole heck of a lot of difference if you have another -3.50D in your prescription. We thought our myopia had come from our mother, who needed, and wore, a -12D prescription for as long as we had lived. When she died at age 81, 3 weeks ago, she could still wear the same old glasses that she wore back when we were kids. She had frequently gotten new glasses over the years, mostly when either Lisa or I got them, but since her vision had stabilized when she was younger, she certainly did not need new glasses with the same frequency that Lisa and I did.

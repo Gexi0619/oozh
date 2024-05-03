@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl discovers her nearsightedness, struggles with the idea of glasses, and finally gets the help she needs.
 ---
-
-                                              
 I had just turned 10 in April the year I was in grade 5 at Reid Elementary when I started to notice something funny.  Not funny ha ha, but funny strange. In the morning when I first woke up I could see the face of my favorite singer on the poster of him that hung on the other wall of my bedroom quite clearly.  Then, when I came home from school in the late afternoon if I plopped down on my bed and looked at the poster it was all blurry. I could no longer make out his features unless I got up and moved closer to the poster. I knew that there was something that wasn’t quite right about this but I didn’t want to say anything to my parents.
  
 We still had another month to go before school was out for the summer when I noticed that now I couldn’t even see his face on the poster clearly first thing in the morning. I mentioned this to a couple of girlfriends at school and Marsha told me that I was likely getting a little bit nearsighted just like her older sister.  I knew Marsha’s older sister Grace had gotten glasses recently, but I had not known what was wrong with her eyes to make her need them. Now I knew, but I really didn’t like the idea that I might have to wear glasses. I had nothing against glasses – I just didn’t want to have to wear them myself.

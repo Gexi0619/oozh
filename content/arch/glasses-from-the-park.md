@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Dakota befriends a man with incredibly strong glasses, who shares a captivating story about their origins.
 ---
-
 This is the first part of a 6 part story. Unlike some other writers, I have made each story a stand alone story that is complete within itself. I will post the second part next Sunday, and will continue until the last part is posted in a few weeks.
 
                                           Glasses From the Park:

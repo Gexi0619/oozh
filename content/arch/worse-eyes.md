@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Melinda and I discovered that we now had a newfound bond as glasses-wearing best friends.
 ---
-
 I met Melinda Saunders the first day of kindergarten and we have been best friends ever since.  For the past 5 years we have played together after school, have had sleep overs at each other’s houses, have gone shopping for clothing together and have traded clothes with each other. We have read the same books, watched the same television shows, liked the same movies and have been just like sisters. Melinda hadn’t said a word to me, so that was why it was such a shock when she told me in school one morning that her mom had taken her to the eye doctor and she needed to wear glasses. Apparently Melinda was nearsighted and she couldn’t see things in the distance clearly.
  
 When Melinda got her new glasses I was a bit jealous. She looked really cute wearing them, and I told her so. Of course I had to try them on, and I found I could see really well when I was wearing them.  But I could see just as well when I took them off, so I knew I probably didn’t need glasses. I wouldn’t have minded having to wear them, but I soon discovered that wearing glasses caused a bit more trouble for the wearer than not wearing them. They got dirty and you had to clean them. They made marks on your nose, and they sometimes hurt behind your ears. And it seemed that the more you wore them, the worse your eyes became, because now Melinda couldn’t see nearly as much as I could when she took them off. And if you were out in the rain the lenses got all spotty, so you had to wipe them a lot. But even with all those problems that Melinda had I found myself wanting to need to wear glasses.

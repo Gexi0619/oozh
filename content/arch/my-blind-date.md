@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A myopic woman prepares for a blind date, worried her thick glasses will hinder her chances at love.
 ---
-
 Andy and myself had agreed by e-mail to meet at the Starbucks at the end of the local strip mall at two in the afternoon. I was so happy that I finally got a blind date. Luckily Andy had agreed to meet up in the afternoon. I just didn't dare to meet him at night. Not the first time we would meet. I was afraid that my poor eyesight would make it difficult to enjoy my date. I am very myopic and my modest income meant that I hadn't been able to afford a new pair of glasses for almost two years, although a stronger prescription was long overdue.
 
 I started wearing glasses when I was nine. Back then I had a very weak prescription, however my eyesight got rapidly worse. When I still lived at home, my parents would pay for new lenses every four to six months and I got a new frame at least once a year. This ensured I could always see reasonably well. However two years ago I moved out and started working in a full time admin job and since then money is always a little short. Hence new glasses hadn't been a priority. The pair which I wore didn't even have the thinnest possible lenses, again due to cost, something which I attributed the fact to that I found it incredibly hard to find a partner or at least to be taken out on a date.

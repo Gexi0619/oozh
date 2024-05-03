@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A romantic trip to a mysterious lake takes a dark turn when a strange legend becomes reality.
 ---
-
 Martin and I booked a trip to Nehulonia . We were there two weeks to put away everyday life, after I had finished my studies finally and Martin could make a break. Sun, beach and perhaps also more sex than usually. At least that was my goal,. but it became much more exciting than I had ever thought before.
 
 All my fellwoship knows that after three days in the same place I get cabin fever. Fortunately, we had a rental car, which allowed us to explore the whole island. Before the trip I read several guides.

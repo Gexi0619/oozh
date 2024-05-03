@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A girl helps fit glasses for her classmates, but can she keep their secrets hidden?
 ---
-
 When I arrived with Vanessa Jill was already there,she looked very grown up and had put nice makeup on.
 This was the first time she had meet Vanessa, she just looked in a trance staring at Vanessa.
 “I Love your glasses and hearing aids,do you think I can have hearing aids like that before I leave school,you look so sexy Vanessa”

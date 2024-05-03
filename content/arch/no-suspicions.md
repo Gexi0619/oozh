@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A kindergarten teacher's encounter with a young girl and her sister wearing glasses reveals a surprising secret.
 ---
-
 When I first spotted her she was carrying one daughter cradled in her left arm and her other daughter was clutching her right hand as they walked into my classroom.  I didn’t envy her the fact that she had 2 young children so close together in age, as the one walking appeared to be around 5, and the other one was maybe 3 or 3.5 years old.
 
 As she drew closer I could see that the 5 year old was wearing glasses. They didn’t appear to be very strong, but I could tell from the distortion that they were a minus lens.

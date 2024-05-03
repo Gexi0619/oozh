@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Small-town boy meets girl, gets married, and becomes a father. Unexpected twists and glasses add intrigue.
 ---
-
 When you grow up in a small town your selection of young ladies to date are rather limited. Even though I have always liked the appearance of a glasses wearing girl and had dated quite a few of the girls around my age who wore glasses, when Jamie Baxter came to me to tell me that she had missed her period during the second month we were dating I decided that I would marry Jamie. At the time Jamie was 18 and had started working at the local pharmacy as a cashier. I had been working for Speedy Cartage, doing the local deliveries and was waiting until I turned 21 so that I could drive tractor trailer across state lines. I had a year to go, and in the meantime, I was restricted to the boundaries of our large and remote state.
  
 I don’t know if I was ready to get married and start raising children, but my parents and grandparents had instilled in me that even if what you had to do was not exactly what you wanted to do, you had to do the right thing. And in this case, getting married was the right thing. Jamie and I didn’t announce it to the world, but we got the marriage license, and with both sets of parents and a few friends we were married by the preacher at Jamie’s church.

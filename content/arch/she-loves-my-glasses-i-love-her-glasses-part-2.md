@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance reunion turns into a whirlwind romance as two girls bond over their shared love of glasses.
 ---
-
 To enjoy this story be sure to read part  1 first.
 
 Dave and Megan broke up, and I missed talking with Megan, I really liked that girl very  much.

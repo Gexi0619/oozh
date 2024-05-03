@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Follow Dale's journey as he navigates college, glasses, and the family business in this engaging tale.
 ---
-
 During the 2012-13 school year 22 year old Dale of Corbin Kentucky is a sophomore at Indiana University Bloomington. A sophomore at 22 you ask? Dale had to wait two years before starting college due to the business administration class he wanted being full. Dale in the two years worked in his families successful HVAC business and wanted to follow his Dad into the business so why college? Business was great but Dale's parents had to hire a firm to do things such as payroll and he would be able to save money one day when taking over the business.
 Before starting college Dale had an eye exam showing very mild Myopia. The Optometrist told Dale if he thought he needed glasses she would prescribe them but they would be -.25 in each eye which is the lowest prescription there is for Myopia while noting the only thing he would need them for is night driving. Dale declined noting that he was not going to have a car at college and would not be driving. Dale goes thru his freshman and due to being busy helping in the business does not have an eye exam that summer.
 Dale who was told a good sign of Myopia increasing would be in the large college classrooms would be if he has trouble seeing the things farther away. Dale notices early in his sophomore year having to squint to see some stuff farther away Dale after contacting his parents is told to get an exam in Bloomington and glasses if needed. Dale goes to Pearl Vision in a mall in Bloomington and is prescribed glasses with a -50R and -75L as needed. Dale is told the glasses will help in the classroom and night driving when he gets back home. The glasses do help in class and when home for Christmas break wears them for night driving and again they help.

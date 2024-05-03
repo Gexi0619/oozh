@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kirsty's worsening vision strains her relationship with her overburdened mother as she struggles to get new glasses.
 ---
-
 -------------
 Dear Diary
 -------------

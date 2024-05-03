@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A summer on the farm, a surprising gift of glasses, and a newfound love for myopia.
 ---
-
 The girl of my dreams.
 
 My second year of high school is almost finished, and I am looking forward to the summer break.

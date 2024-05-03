@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a family where glasses are a common sight, young Tyler yearns for a chance to wear them too.
 ---
-
 In our family my mom wears glasses for myopia, and my dad wears reading glasses.
 My name is Tyler, I am the youngest in the family.
 Crazy as it is ,I would love to wear glasses,  I think they are fantastic.

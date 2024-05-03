@@ -7,12 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Ak, an alien agent, is sent to Earth to organize a social experiment, but things take a mysterious twist.
 ---
-
- 
-
 Ak opens the door and exits the large rustically finished meeting room. The meeting just finished is one he has been sent to by the ruling council of the planet Ork. He is an alien agent sent to organize a social experiment to see if Earth people are really happy in their current state of development. 
 Ak has been chosen for this job because he is a descendent of the founders of a theme park in the dim past that was named Akzarbyn.
 This is where Ak got his name. Akzarbyn Myopian Geazanslaw.

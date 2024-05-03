@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a small town, Donavan's life changes when a law requires him to wear glasses and get a moped license.
 ---
-
 This story is fantasy. One true thing is ages 15 and up are permitted to ride a moped or motorized bikes on non interstate roads without benefit of a license or insurance.
 Madison Indiana is a small town in the Southern part of the state located on the Ohio River. Madison is the seat of Jefferson county Indiana. The Louisville Kentucky TV stations when reporting severe weather have to make sure and tell the difference as Louisville is also in a county called Jefferson. Madison is most famous for both owing a hydroplane and staging races for them over July 4th.
 Donavan started carrying both the Louisville Courier Journal Morning and Louisville Times afternoon papers as soon as he turned 14 in 1980 saving his money up to buy a moped.

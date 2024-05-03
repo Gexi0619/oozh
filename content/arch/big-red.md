@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A boy overcomes his aversion to redheads and becomes intrigued by a glasses-wearing, copper-haired girl named April.
 ---
-
 I generally take an almost instant dislike to girls with red hair. I just do not like the fiery red or even the carrot top red that most red heads have and as a result I have probably missed out on meeting some very nice girls. However, I still feel that I like a blonde, black, or brunette-haired girl, just not a redhead.
  
 I made that statement to my sister when I was around 14. I don’t know where my dislike for redheads came from, but I had felt that way for most of my young life. There were some things I really liked about a girl, one of which was if she wore glasses. As with the dislike for red hair, I had no idea where my appreciation of girls who wore glasses came from. I just knew I liked them. At that time, I was in junior high, and I had a couple of girls in my 9th grade class that wore glasses, and the one girl I liked the most wore what appeared to be a fairly thick pair of minus glasses because she was very nearsighted. She was slightly older than I was, and she was already 15 in January while I wouldn’t have my15th birthday until the beginning of May. I suppose the age difference wouldn’t have made a big difference if I had only found the courage to ask her out but having not dated yet I didn’t have a clue how to go about asking a girl to go out with me. The other girl was around my same age, with much thinner lenses in her glasses, but again I flubbed it by not having enough nerve to ask her out.

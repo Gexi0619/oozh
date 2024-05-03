@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A talented dancer with myopia must find a solution when she's told she can't wear glasses on stage.
 ---
-
 In a quiet neighborhood lives  the Brown family.
 Mr. and Mrs Brown and their 5 yr old daughter Jennifer [ Jenny]
 Jenny is a very lively pretty fair haired girl, she is very athletic and loves music.

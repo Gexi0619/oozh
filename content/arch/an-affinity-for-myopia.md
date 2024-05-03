@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man becomes enamored by a woman's strong glasses and challenges her to a game of darts.
 ---
-
-                                 
 I was sitting at a table in a combination bar and restaurant having my dinner when a young lady came in and sat down at a table across the room. I was intrigued, more by the strong glasses she wore than by the fact that she was a fairly attractive lady. All my life I have had a soft spot for ladies that are more than mildly myopic, and this girl certainly fit the bill, although she was much closer to being an extreme myope from the thickness and the amount of cut in that her lenses showed. I slowed my food intake and watched her without making it terribly obvious that that I was scoping her out.
  
 She finished her meal and ordered another drink. What I thought had been a bloody Mary turned out to have been a virgin one so she was not drinking to forget. When her drink came she paid her bill and then walked over to a dart board. She took all the darts and then proceeded to throw them all at the board. She wasn't hampered by her strong glasses as most of her throws landed pretty close to the middle. I watched for a while longer and was enthralled by the way the light in the bar danced across the fronts of her thick lenses. It was obvious that some of her very high prescription was ground into the slightly biconcave front surfaces of her lenses.

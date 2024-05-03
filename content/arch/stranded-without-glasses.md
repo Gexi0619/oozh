@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Trapped in an airport during a pilot strike, a man becomes intrigued by a mysterious woman.
 ---
-
 The credit for the bulk of this story is given to Andy, who wrote the major portion.  I did add a bit, and ended it off, but the idea behind it was my friend Andy's.
 Happy New Year everyone.
 

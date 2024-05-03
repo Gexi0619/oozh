@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Marion's discovery of her need for glasses unravels a deeper conflict in her marriage.
 ---
-
 Marion was married to Bob, had a good marriage and they had a boy Andy and a girl Kathy.
 Bob had a good job, so Marion stayed home to look after the family. She was industrious liked to sow, knit, cook and bake and putter in the garden.
 They lived in a nice middle class subdivision, and got along well with their neighbors. Their next door neighbors were Jim and Ann, very pleasant people, who had a son Jack and a daughter Brenda.

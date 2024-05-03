@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Moving to a new city for college, a student forms a surprising connection with his visually impaired housemate.
 ---
-
-                                 
- After I graduated from High School I wanted to continue with my education, so I enrolled at a University about 80 miles away from my hometown.  A friend of my dad lived in the city where the university was and he suggested that he had a neighbor lady who had just had her son join the armed forces so she was very amenable to renting out his room to a university student. Dad drove me down to check the place out and it seemed fine to me. I was going to be in a room on the third floor and there was a small bathroom up there as well as another vacant room. The rent was reasonable and I was getting my meals included. It was only a short walk to the nearest bus stop so dad rented the room and I was to move in 2 weeks later. The lady and her daughter had their rooms on the second floor and would not interfere with my privacy.
+After I graduated from High School I wanted to continue with my education, so I enrolled at a University about 80 miles away from my hometown.  A friend of my dad lived in the city where the university was and he suggested that he had a neighbor lady who had just had her son join the armed forces so she was very amenable to renting out his room to a university student. Dad drove me down to check the place out and it seemed fine to me. I was going to be in a room on the third floor and there was a small bathroom up there as well as another vacant room. The rent was reasonable and I was getting my meals included. It was only a short walk to the nearest bus stop so dad rented the room and I was to move in 2 weeks later. The lady and her daughter had their rooms on the second floor and would not interfere with my privacy.
  
 I moved in 2 weeks later and when I was called down for supper I walked into the kitchen to meet her daughter. My first impression was not good. She looked to be somewhere between 13 and 14, and she was ugly as could be, mostly because of the really thick glasses she wore. I had never seen a girl so young with glasses that were as thick as these were. They were really dished in on the front and the lenses gave off weird reflections. And even with the thick glasses the girl didn’t seem to be able to see very well, because when she was eating she brought her face very close to the plate so see what she was picking up with her fork to eat. I finished supper and headed back to my room to finish my book, but all I was thinking was that this was about the ugliest girl I had ever met and I hoped she didn’t think I would ever find her attractive.
  

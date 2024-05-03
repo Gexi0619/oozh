@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy's fascination with his teacher's strong glasses shapes his desires and leads to a unique sexual preference.
 ---
-
 I think it all started when I was around 10 years old. I do remember dreaming about my fifth grade teacher, a young, pretty blond lady who wore glasses.  I was fascinated by her glasses.  They seemed to be pretty strong, and they had a lot of reflections from the front when I looked at her.  The front surface of her glasses appeared to be flat, or if not flat, pretty darned close. And, when you looked at her face to face you could see both sides of her face well inside the frames of her glasses.  I liked to look at her from the side as well, because then her glasses appeared to be at least a quarter of an inch thick. She never took them off – at least not while there was any students in the room. Quite a few times when I was walking past the door of her empty classroom she did have them off, and was sitting at her desk cleaning them. I would stop and watch from the other side of the hall, and I was enthralled by how she would blow on the lens, and then wipe the lens with a soft cloth. Then she would bring the glasses up to within a few inches of her eye to look through the lens to see if it was clean. If it wasn't she would repeat the process, and when she was satisfied that the lens was clean she repeated the performance with the other lens.  I always made sure I was out of her line of vision before she looked around.
 
 By the time I was in grade 6 there were 3 girls in my class who came back to school in September wearing glasses. Before this there was only one girl who had worn glasses, and I didn't really like her glasses, because they really seemed to magnify her eyes. But all three of the new glasses wearers had glasses that made their eyes look just a tiny bit smaller, but very clear when you looked at their face. I liked this type of lens.

@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Marriage, kids, and unexpected changes lead Mike and his wife on a journey filled with love and sacrifices.
 ---
-
-                            
 Mike and I had been going together for the last two years of university, and we decided that we would marry the summer that we graduated.  We did and we first rented a nearby apartment that enabled us to commute to our jobs using public transit. We knew we were going to have at least 2 children, and that would likely result in the eventual move to suburbia and a much longer commute. But our plans were to have the finances set aside for a decent down payment by the end of a 5-year period. Our plans were on track for the first 3 years, but I had a problem with the birth control pills I was taking, and the doctor wanted me to go off them for at least 6 months. It was towards the end of the 6-month period when I missed my period. Mike had been using condoms most of the time but…………
  
 Oh well, adjustments in plans sometimes have to be made. Mike and I went searching for a house, and fortunately we found one that was big enough for a small family, close enough for our daily commute, and not priced too far out of our budget range. And as a bonus we were near enough to Mike’s parents that we could have his mom babysit so I could return to work.

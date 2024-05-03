@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In the summer after high school, the protagonist works at a marina and becomes entangled with shady classmates.
 ---
-
 The summer I graduated from high school found me again working at the same marina and boat rental place at the beach that I had worked at for the past 2 summers. A lot of people from town kept their boats at the marina, because the marina was near the mouth of a fairly large river that ran into a pretty decent sized bay with a number of islands.
 
 The father of one of my classmates owned a 32 foot cabin cruiser that I often admired when I worked the fuel docks. Mr. Bullard was a real estate salesman, and had his own office. I assume that he made pretty darned good money, because every time I filled the tanks on his cruiser the bill came close to $500.00, and sometimes he filled the boat up a couple of times a week.

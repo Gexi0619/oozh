@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jack continues his tests at The Strabismus Institute, discovering he may need more prism correction in his glasses.
 ---
-
 The Strabismus Institute
 
 Part 3 - Another Test

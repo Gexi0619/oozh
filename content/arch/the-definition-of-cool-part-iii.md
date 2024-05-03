@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In the final match of her career, tennis star Becca Bennett fights through pain to win her first Grand Slam.
 ---
-
 Here is the final instalment of the Definition of Cool Series. I’ve written it so that it can be read on its own, but to get the deeper themes I’d recommend that you read the two prequels to this.  I hope you enjoy it.
 
 viewtopic.php?p=3851#p3851

@@ -7,13 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Follow Dakota as they navigate the consequences of a mysterious gift that grants perfect vision with strong glasses."
 ---
-
- 
-                                
- 
 My name is Dakota Thomas, and while this is a standalone story it pretty much continues on with a story of something that occurred 3 years ago when I was 14 years old.  Our family consists of my mom and dad, and my 2 sisters Jessica and Eva and we all live in a new house that we moved into last year in a brand new subdivision on the outskirts of the city.  My grandparents had owned the farm that was now all covered with new houses. I was an honor student in my last year at St John the Baptist Senior High and since I had been wearing my -21D blended lenticular myodisc glasses I was considered a real nerd. I was content to study to keep up my grades, or read a book and listen to the music I liked. My dependency on my glasses would not have allowed me to play any team sports even if I had wanted to.
  
 I have told the story of how I ended up wearing glasses before so I will not go into any boring details. I have spent the last 3 years with my eyes trapped behind very strong glasses, and I love every minute of it. My glasses are so much a part of me that I give thanks every day for that old man in the park who somehow must have recognized my desire to wear thick and strong glasses. I don’t know what the glasses were made of that the old man gave me. I do know he told me he had found them on the subway in the city, and he had put them on and could see perfectly wearing them. That had been over 60 years earlier and I also found that when I put these 60 year old thick plastic lensed biconcave myodiscs in a heavy black frame on my face my vision was extremely clear and intense. He only let me wear them for about 15 minutes and then after I took them off it took over an hour for my vision to return to normal. But those 15 minutes of perfectly clear vision made me want to wear glasses and for some reason the old man promised to come back the next day to see if I still wanted him to give them to me. Of course I did, and I have enjoyed the experience of wearing strong glasses ever since.

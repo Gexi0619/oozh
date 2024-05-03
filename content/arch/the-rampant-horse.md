@@ -7,14 +7,11 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Story follows a darts team as a mysterious woman with thick glasses joins and dominates the game.
 ---
-
 Again, being as this is a new message board and it has some need of attention, I have written a new story for the occasion.
 
 The Rampant Horse
-----------------------
 
 1. 
 

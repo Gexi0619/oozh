@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "An aging writer reflects on his obsession with cars and girls who wear glasses in his final story."
 ---
-
 If you are reading this you must be wondering what the title refers to.  Does it mean what it seems to indicate?  I am sorry to say that it does. I have been trying to write enough stories that I can bring out at least 2 new ones every month, but I am now running out of different ways to tell a story.  So, this is going to be my last story, at least the last one that I write with any regularity. I suppose as long as I live I will continue to think up different plots, and twists for stories about myopic ladies in my mind.  However, I no longer plan to sit down and put my stories on paper on a regular basis. I think I have written enough, and it is time for younger writers to carry on.
 
 In order for me to write my last story, I have to finish my first story. In thinking about it this could be harder than it has been for me to write well over 200 other stories.  This first story has been unfinished in my mind for over 51 years, since I was a boy of 16, and a student in high school.

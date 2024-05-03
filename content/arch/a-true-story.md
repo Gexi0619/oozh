@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In "My Life of Wishing," the narrator becomes obsessed with wearing strong glasses in public, leading to unforeseen consequences.
 ---
-
 My Life Of Wishing:
 
 It has been a week now, and I am as confused as I have ever been.  Last Sunday morning I opened up my case, put my plus contact lenses in my eyes, and placed my strong -24D glasses on my nose.  It has been a few weeks since I last wore these glasses, and while I had that ability to do so over the past while, I had not had the inclination.  I suspect that the reason for this was that I knew that I was fueling my addiction, and that I would do exactly what I have done to myself for the last week.  And, I have done it. I have, except for necessary trips to do some normal things, locked myself in my house, and have worn my glasses for anywhere from 12 to 16 hours a day.

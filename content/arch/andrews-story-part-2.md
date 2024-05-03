@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In the second part of Andrew's story, he and Mary share an intimate moment, but things take a surprising turn when Mary's sister, Julie, arrives wearing unflattering glasses.
 ---
-
 Val kindly posted part one for me.
 I hope this posts ok
 I read that somebody wished more people would write stories, so here is part 2 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a world consumed by iGlass, one man fights to protect his family from its sinister influence.
 ---
-
 “Now we’ve told you a thousand times, we don’t want nothing to do with this stinking iGlass business,” the man told me. “It’s poison for my family, and I don’t want none of it.”
 
 	My name is Randal Dean, and this is my job. I work for iGlass, a product with over 99% market penetration across the world. A product whose clear benefits, low-price point, and intuitive user interface make it literally a no-brainer to use. And as my piss poor luck would have it, my job is to talk to those “no-brainers” who refuse to wear them.

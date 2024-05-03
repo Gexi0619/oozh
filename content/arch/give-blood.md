@@ -7,13 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Give Blood is a gripping tale of missing blood bags and a mysterious new nurse. Secrets lurk in the hospital.
 ---
-
----------------
-Give Blood
----------------
 
 1. Missing
 

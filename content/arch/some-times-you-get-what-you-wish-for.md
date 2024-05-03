@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Geoffrey becomes fascinated with glasses, eventually getting his own and discovering the power they hold.
 ---
-
 Geoffrey was a 12 year old boy, he had 2 younger sisters, Megan who was 10 and Jenny who just turned 8. They were a happy family, dad had a good job, so mom stayed home. Geoffrey liked to bike, play sports, video games and work on the computer. He was a good student going into grade 6.
 He was very fascinated  with glasses. Neither of his parents wore glasses, his grand parents did, but all old people wore glasses.
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Emily, a young boy named Ethan, embraces being transgender, causing his family to navigate a new reality.
 ---
-
 Emily.
 
 

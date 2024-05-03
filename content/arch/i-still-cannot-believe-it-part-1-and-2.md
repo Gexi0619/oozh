@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: New neighbors move in next door, sparking curiosity for young Patrick. A surprising discovery about glasses unfolds.
 ---
-
 I still, cannot believe it.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Mike, the only one in his family without glasses, discovers a solution to induce myopia with contact lenses."
 ---
-
 I feel left out !!
 Both my parents wear glasses.
 My 2 younger sisters wear glasses,

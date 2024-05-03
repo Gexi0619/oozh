@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A boy discovers his unusual attraction to girls with glasses, grappling with societal norms and his own desires.
 ---
-
 I was in 3rd grade when I was first beguiled by girls in my school. Previously, I had primitive little girlfriends with whom I’d play “house” and spend recess time together, but it was between 3rd and 5th grade when the footprint for my sexual preferences solidly manifested.
 
 I will note that before this manifestation, two of my best friends were girls. When we were very young, 1st grade I believe both of these primitive girlfriends  were prescribed eyeglasses for nearsightedness. At the time, the allure of glasses eluded me. Instead I was repelled by spectacles. Due to the influence of television shows, I strongly associated glasses with nerds and outcasts who were bullied thus I resolved to spend less time with these friends and avoid glasses as if they were a contagious pathogen. 

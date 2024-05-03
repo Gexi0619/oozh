@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teenage boy finds a pair of glasses and discovers a new perspective on life.
 ---
-
 Lost and Found.
 
 

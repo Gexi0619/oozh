@@ -7,12 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A 10-year-old girl, Kendra, is upset when her best friend gets glasses and she doesn't.
 ---
-
-                                      
- 
 I am sooo mad!  No, maybe I shouldn’t say mad.  I am more like angry or upset. How could she do this to me?  She knew I wanted to be able to wear glasses and now my best friend Cassandra Anderson has glasses and I don’t. I shouldn’t even talk to her anymore. But I guess that would be stupid because if I don’t stay friends with her then she won’t ever let me try her glasses on.
  
 My name is Kendra Mills and I am 10 years old.  My best friend Cassie is the same age as me and we are both in Ms. Harris’s grade 5 class. I know Ms. Harris wears contact lenses because once she had to wear her glasses to school. She wears the cutest glasses and I love the looks of them. That are not very thick at the edges, but the front of the lenses are totally flat and they throw off really neat reflections. I told Cassie I wanted to wear glasses just like Ms. Harris wore when I got older and she never ever even told me that she wanted to wear glasses. Now she has glasses and I don’t. 

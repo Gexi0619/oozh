@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Maddie refuses to wear her new glasses, but her friend finds them and faces a dilemma.
 ---
-
 Both Lisa and I knew that Maddie had glasses, but we’d hardly ever seen her wearing them.  Once or twice, she had put them on while we were playing dressing-up games in her bedroom, but we’d never seen her wear them outside her house.  We had also tried them on when our parts in the games needed us to wear them.  They weren’t very strong, and I could see just as well with them, as without, for just a little more concentration.
  
 Maddie had arrived late to school one Wednesday morning, and she was in a foul mood, but she refused to say why.  At play time, she spent most of the twenty minutes in the toilet, and had done pretty much the same when lunchtime came.  I was worried that she might have been unwell, but all I could get out of her was that she was “Fine, thanks,” and not a word more.  I don’t think Lisa, my twin sister, got much more out of her, so we just shrugged at each other, and decided to let Maddie be in a bad mood as we couldn’t do anything to snap her out of it.

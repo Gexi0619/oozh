@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man tries to cover up a murder and manipulates his daughter's eyesight to protect his secret.
 ---
-
 If you haven't read part one first please do.
 
 I almost died for the second time when Brianna came into the kitchen early that morning.  I was on my hands and knees scrubbing the rest of the blood that was left over from killing her mother the night before.  I had to think fast, so I told Brianna that I had dropped a bottle of ketchup and there might still be glass around on the floor.  I took her back up to her bedroom and tucked her back into bed. I told her that her mother had run away with another man because she didn’t want to be with us anymore.  Then I finished cleaning up the mess with bleach.

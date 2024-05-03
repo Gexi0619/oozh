@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Vicky's perspective of glasses changes when her friend Amy gets them and her vision improves.
 ---
-
 I sure, was a foolish girl.
 
 Being a girl, in a family, with two older brothers, is not always easy.

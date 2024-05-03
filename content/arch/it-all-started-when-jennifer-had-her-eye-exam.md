@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jennifer's journey with glasses ignites Katie's curiosity, leading her to discover a new interest in eyewear.
 ---
-
 It all started, when Jennifer, went for her eye exam.
 
 

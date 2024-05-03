@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A thrilling tale of an escort agency with a twist, where clients' fetishes turn into life-changing surgeries.
 ---
-
 My name is Manwell 
 I run an escort agency with a difference.
 I started the agency about 20 years ago.

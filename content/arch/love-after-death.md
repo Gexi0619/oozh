@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A decades-long forbidden love rekindles amidst glasses, memories, and a funeral, as secrets reveal themselves.
 ---
-
 She saw me standing at the doorway from across the cavernous room.  A smile crossed her face, and she headed my way, her long perfectly formed legs making short work of the trip.  She was as beautiful as I remembered her, and her beauty had only increased during the eight years since I last saw her.  As she drew closer I noticed the glint of a pair of rimless glasses perched on her nose.
 
 “Jeremy, thank you for coming!”

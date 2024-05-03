@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man reminisces about the day he met his wife, captivated by her glasses and charming presence.
 ---
-
 I woke to rays of sunshine streaming in through the partially open window.  My wife was still sleeping and I looked over at her face, the only part of her that was visible above the duvet.  It was still an attractive face, although the 45 years of our marriage had created quite a few more wrinkles.  The marks on her nose from where her glasses had perched since she was 12 years old had become permanent years ago and I doubted that they would ever disappear even if she no longer wore them. I looked over at the bedside table where she always laid her glasses and saw that there were two pairs of glasses sitting with her tablet.  My wife is so very nearsighted that after she turned 50 and had to get progressive lenses she has always had a second pair of glasses with a weaker prescription that were just single vision that she used for reading in bed so I knew she had again been awake during the night.  This is now a pretty common occurrence as she has very seldom slept through the night over the past few years.
  
 My mind drifted back to that day 46 years ago that I met her. I was 24 years old and was selling cars at a dealership in the city that was about 15 miles away from the town that I was raised in.  It had been a slow, rainy day, and I decided that even though I didn’t like eating by myself I would take time off and grab a bite at a nearby restaurant.  When I walked into the restaurant there was a bit of a lineup, but I knew that it would only be a minute or so until I was seated because there were lots of empty tables and the hostess was seating people as fast as the girls could clean a table. There were two girls in front of me and one turned around to look my way.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Identical twins switch classes, but a broken pair of glasses leads to a punishment with lasting consequences.
 ---
-
 This story is fantasy but I wonder if something like this happened. I am not a twin and in fact am an only child.
 Identical twins Joseph and Robert were born in 1961 to loving parents in Seymour Indiana to who were determined each twin would have their own indentiy. The parents when the twins were little flat refused to dress them alike and when older encouraged them to have different hair styles. Long hair on males was very in by the time they were teenagers and both wore their hair long in an almost indentcal styles. 
 Rob as he was called was the first to need glasses at age 9 and Joe followed a year later.

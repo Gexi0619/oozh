@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: After Anne gets reading glasses, she and Tony explore their growing intimacy and assist each other.
 ---
-
 My beautiful nurse 
 
 It was now a week since Anne had got her reading glasses 

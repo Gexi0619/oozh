@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "One man's lifelong attraction to girls who wear glasses leads him down a surprising path."
 ---
-
 I knew before I graduated from public school that I was attracted to girls who wore glasses. I don’t know why this was, and I really didn’t waste much time trying to figure out the reasons.  I think that part of my fondness for girls who wore glasses might have been because of my first grade teacher, who was a very attractive young lady just out of teacher’s college.  Miss Barnes wore glasses that seemed to be pretty thick because they had flat fronts and the lenses stuck out behind the frame quite a bit and I found myself staring at her and her glasses all through first grade.
 
 My fondness for glasses wearing girls continued as I grew older.  When I graduated from Junior High, my date for the prom was Shelly Jacobs and it was no coincidence that Shelly wore the thickest glasses in the whole school.  I had worked on Shelly for almost 2 years to get a chance to take her out, but her parents would not let her date until she was 16.  But they did allow her to have a date for the prom, and Shelly was more than willing to allow me to escort her. We had a good time that night, and I found Shelly to be more than attractive enough for me.  I managed to date Shelly a few more times over the summer but by the time we returned to school in the fall I realized a very important thing.  Her glasses might have been drawing me to her, but the person who wore the glasses had to have something more than a pair of glasses in order for me to stick around.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "From Book-Nerd to Ophthalmologist: A Journey of Service, Adventure, and Unexpected Irony."
 ---
-
 This is my first attempt at a story, and I think one of the hardest parts is picking a subject/title.  I had a couple ideas for stories using this same Ophthalmologist male lead character. … Well here goes:
 ====================================================================
 

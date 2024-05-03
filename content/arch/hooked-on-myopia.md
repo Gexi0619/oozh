@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Childhood friends deal with the death of their mother, reflecting on their shared past and familial dynamics.
 ---
-
 Janey, my younger sister called me tonight to tell me that Noel and Mary’s mom died. If she hadn’t said Mary as well as Noel, I wouldn’t have known immediately who she was talking about. This is a little hard to explain, because Rich Knoll had been my best friend all through my school years, and still was someone I cared about, and saw frequently.  However, when I explain that Rich was named Noel Richard Knoll, I think you might understand why his best friend would be one of his childhood friends who would have called him by his second name.  I don’t know what his parents had been thinking when that called their son Noel Knoll, but by second grade Noel hated his first name so much that he asked everyone to call him by his second name. Since we were best friends, I was one of the few that complied, and to this day I think of him as Rich.  His sister Mary wasn’t the butt of as many jokes as Rich had been, however she still was made fun of a little.  And that really wasn’t totally fair, because a child can’t change their last name.  
 
 Rich and Mary were the children of Harry and Barbara Knoll.  I guess if they had been looking for a name that they wanted to be the butt of a joke they could have called Rich Rocky, then he would have been Rocky Knoll, but I think that Barbara was enough of a spaced out individual that when Rich was born she just picked the first name that she liked, without thinking of the consequences for Rich as he was growing up.

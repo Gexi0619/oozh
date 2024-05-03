@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: One student's refusal to wear glasses leads to a string of unexpected events at college.
 ---
-
 By the end of my senior year of high school I had noticed that even with my contacts in I was having a bit of trouble seeing clearly. My annual eye doctor appointment confirmed my suspicion when I was now prescribed a prescription of -6.50 in my right eye and -6.00 in my left. I was still absolutely determined not to get glasses. At this appointment, my eye doctor finally said that I needed to get glasses in addition to my contacts. I agreed and said that I would look online for some cheap pairs so I could save money as I was not planning to wear them very often. When I got home I went online and took a look at some frames using virtual try-on features. I hated how I looked so I decided to screw it and just stick to contacts. 
 
 As the summer began, preparations for college began too. Mia and I had broken up because she was going to school in California, and I was going to a small engineering school in Maine about 5 hours away from my home in New York State. Soon classes began and I moved into my dorm. I met a bunch of friends on my floor and I was beginning to take to liking my new life of independence away from home. 

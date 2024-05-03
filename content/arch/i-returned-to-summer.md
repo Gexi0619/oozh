@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A woman returns to her childhood beach cottage, uncovering memories of family, loss, and a forgotten pair of glasses."
 ---
-
- 
 As I sit on the beach. the water is slowly rolling in and the waves are lapping gently on the shoreline. I have always loved the beach, and the thought of never coming back here leaves me with an empty heart. When I was a young girl, I had run on this beach with my yellow lab Benjie for hours. We had swum together in the clear blue waters on sunny days, on rainy days, on cloudy days and on any of the days that ended with a “y”. Sitting here alone made me miss Benjie even more, although he has now been gone for 17 years. Today is a perfect day with the sky a vivid blue and the wispy clouds drift slowly towards the town, blown by the gentle breezes.
  
 I miss Benjie terribly, almost as much as I miss the good times I had here with my parents and my siblings. Wade, my older brother, is gone, a victim of a roadside bomb in Afghanistan. Sheila is a year and a half younger than I am, and Jason is almost 4 years younger, so I am the oldest living child of Rob and Marie Wilson. 

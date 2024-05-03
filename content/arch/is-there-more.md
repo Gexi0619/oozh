@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man's life takes an unexpected turn when he undergoes cataract surgery and embraces his nearsightedness.
 ---
-
 Things hadn’t been going well for me as I approached my 7th decade.  I was miles away from being to the point I had imagined myself being by this stage of my life.  I was still keeping myself sort of busy writing stories but, as they had been for the last almost 20 years, these stories were mostly fantasies;  stories  that revealed more about my hidden desires than they revealed about anything I really thought of. When I wrote a story about a very nearsighted young girl I became that young girl in my mind, and I wanted nothing more than for the story I was writing to be true.
 
 The one bright spot on the horizon was that I was developing cataracts.  This had been going on for a couple of years now, and the eye doctors that saw me all said that they were not bothering me enough to even consider having a clear lens replacement yet.  But recently my right eye had been getting more and more nearsighted. It had started about a year before and when I had my glasses changed in the spring they were perfect for about 3 or 4 months.  Now it felt like I would need about a diopter or a diopter and a half to bring my vision back to where I would consider it acceptable.  I went to see my eye doctor, who confirmed that I did indeed have what was called a nuclear cataract in my right eye, and even if he prescribed a new prescription for me the myopia would continue increasing, possibly rapidly but glasses would not correct me very well.  After I told him that my left eye was also causing problems for me when driving at night he agreed that I had reached the point where I should have my natural lenses removed and clear lens replacements inserted,

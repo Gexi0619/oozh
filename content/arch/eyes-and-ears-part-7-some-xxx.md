@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Two girls escape home and school, find love and refuge in a summer house by the beach."
 ---
-
 Eyes and ears part 7 some xxx
 
 

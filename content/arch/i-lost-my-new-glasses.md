@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman loses her new glasses on the subway, but finds a mysterious pair in her shopping bag.
 ---
-
 My name is Jenny.
 I am all excited, I am picking up my new glasses to day.
 My first pair of new glasses in 3 years.

@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter at a dinner party in the Philippines leads to an unexpected romance with a myopic beauty.
 ---
-
-                                                      
 A while back I was in the Philippians and was invited to a formal dinner party by a friend of mine and his wife. I don’t know why I went, as I was only a visitor in the country, knew absolutely no one there, and had no intentions of staying around for any longer than my 2 week vacation. But things were to change in a big way; a way I could only have dreamed of.
  
 My friends were mingling, visiting with numerous friends and coworkers. They were both teachers at an International School and it seemed that they had a very wide assortment of associates.  I wandered up to the bar to have my drink refreshed and on my way I saw a true vision of loveliness standing alone with an empty cocktail glass in her hand.  As I approached she turned my way and I could see that she was indeed one of the loveliest ladies I had ever seen.  She was not too tall – maybe about 5’6 or so, and she was very slim with a perfect sized waist. I couldn’t tell if she had nice legs or not as they were hidden by a long slinky floor length topless gown. Her breasts were not huge, but the upper parts that were exposed looked to be just about the perfect size.  Her face was framed by long dark tresses that curled slightly as they came down to her shoulders.  And right in the middle of that angelic face a lovely pair of very powerful minus glasses sat perched tight to the bridge of her nose. The cut in showed that lenses of her glasses were quite powerful, but they did not look to be as thick as the cut in indicated so I figured that they had to be a very high index glass with a thinner than the usual center thickness. This is actually very normal in the Asian countries as there are a fair number of high myopes in Taiwan and Hong Kong and even the Philippines.

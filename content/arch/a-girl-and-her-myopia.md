@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A 9-year-old desperately wants glasses, but despite a family history of nearsightedness, her vision remains perfect.
 ---
-
 Today I celebrated my 9th birthday.  I should have been very happy, because my mom and dad bought me some really nice new clothing and a new I Pad.   But I wasn’t happy at all.  The thing I wanted worse than anything else in the world was a pair of glasses to wear.  My mom is extremely nearsighted, my granny is very nearsighted and my great grandmother also wears strong glasses for the correction of her myopia.   And from pictures I have seen, my great, great grandmother was also very nearsighted.  But here I was, over 3 years past the point where my mom got her first glasses and I had just gone for my yearly eye exam only to find out that my eyesight was still perfect. It just wasn’t fair.
 
 When I was 3 or 4 and was able to realize that some people needed glasses I asked my mom if I would have to wear glasses when I was older and she told me that it was highly likely that I too would be very nearsighted because it seemed to run in her side of the family.  I waited patiently for the time to come, and as I grew older and was able to access the internet on my own, I discovered all sorts of websites with information about myopia.  What I read did seem to indicate that with so much myopia in my genetic background the probability of me developing a substantial degree of myopia was very high.

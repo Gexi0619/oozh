@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Rav, a beautiful and ambitious Indian girl, discovers unexpected desires while navigating her first year at university.
 ---
-
 I have to set your expectations. This is part one of a two-part story. 
 
 I've just written it on the train. It's not been proofed or revised. So please accept it could be better written.

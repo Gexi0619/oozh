@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: From a bullied girl to an unfortunate loss, Cinder Ella faces adversity in her journey to find happiness.
 ---
-
 Cinder Ella’s story 
 
 

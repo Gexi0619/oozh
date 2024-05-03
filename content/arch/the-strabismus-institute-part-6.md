@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In Part 6 of The Strabismus Institute, Jack receives a shocking revelation that his new glasses may hinder his ability to drive.
 ---
-
 The Strabismus Institute
 
 Part 6 - A very nasty shock

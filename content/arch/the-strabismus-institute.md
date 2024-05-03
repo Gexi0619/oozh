@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "The Strabismus Institute: A gripping tale of one man's search for a solution to his vision problems."
 ---
-
 Hi, Cactus Jack here.
 
 Recently, one of our members contacted me about a story I wrote back in 2013 about The Strabismus Institute.

@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter at a flea market leads to a life-changing decision to care for a young girl.
 ---
-
-                                
- I was walking around my local Sunday flea market on a pleasant spring Sunday morning when I spotted a vendor with a pile of prescription glasses on one of his tables. I was pleased, because my search for glasses at thrift stores and other places had been rather unsuccessful for quite a while. I went through the pile, and I found a really nice pair of ladies’ glasses that appeared to me to have a prescription of somewhere around -9.00D. I attempted to haggle with the seller, but he wanted $10.00 and was firm on his price so I walked away without them.
+I was walking around my local Sunday flea market on a pleasant spring Sunday morning when I spotted a vendor with a pile of prescription glasses on one of his tables. I was pleased, because my search for glasses at thrift stores and other places had been rather unsuccessful for quite a while. I went through the pile, and I found a really nice pair of ladies’ glasses that appeared to me to have a prescription of somewhere around -9.00D. I attempted to haggle with the seller, but he wanted $10.00 and was firm on his price so I walked away without them.
  
 As I was leaving his booth, I spotted my neighbors walking in.  Juanita, the mother, was accompanied by Oskar, the oldest boy, and Rebekka, the younger of 2 daughters. Oskar was around 14 and Rebekka was about 6. I knew their sister Maria was around 10 or 11 but she was not with them. Rebekka had been born in the US, but I was pretty sure that Jose and the rest of his family had been living in the country for a few years without the proper papers. But this was none of my business, and they seemed like nice people.
  

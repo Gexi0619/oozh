@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a quaint seaside hotel, Peter indulges in his secret desire to be nearsighted, with surprising consequences.
 ---
-
 We are very much the same ...
 
 Part 1: In the Hotel

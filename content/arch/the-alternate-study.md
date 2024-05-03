@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A father discovers his young daughter's sudden vision loss and takes her and her sister for eye tests.
 ---
-
 In one way I was a little surprised when my wife called me at work to tell me that Chynna, our almost 5 year old daughter had woken up that morning and had complained that she couldn’t see. Carrie told me that she had stood Chynna up against the far wall in our kitchen and she was amazed that Chynna couldn’t even see the calendar on the opposite wall. She had brought Chynna to within about 2 feet of the calendar before Chynna could read the dates on the calendar. Now this calendar has pretty big numbers on it, so there was something seriously wrong with Chynna’s vision if she had to come to within a couple of feet of it to read anything. I suggested that Carrie should call around and see if she could get an immediate appointment for Chynna, and while she was at it it likely wouldn’t hurt for Chloe to have her eyesight tested as well as I thought I had noticed Chloe doing a bit of squinting recently.
  
 It seemed that a number of our friends’ children had needed to get glasses recently for myopia. And when I had noticed Chloe squinting and drawing closer to the things she was looking at I was pretty sure she would be joining the girls’ glasses club. Carrie, my wife. had been a member since she was 8 years old, and her glasses were one of the things that attracted me to her. Carrie was just nearsighted enough that she had to use all the tricks to get her very expensive glasses thin enough that she didn’t feel that they looked like bottle bottom lenses, but even with all the thinning tricks they do, a -14.25D prescription still can’t hide the cut in. The cut in is due to the optical power of the lenses, and thick or thin doesn’t matter. But it was a bit of a surprise that Chynna was showing evidence of being very shortsighted.

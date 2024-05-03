@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Laura and her friends navigate a drugstore, finding amusement in trying on reading glasses, until one pair reveals a strange new world.
 ---
-
 Author's note: 100% ficticious work. Hope you enjoy! If there are any mistakes, they're all mine and I apologize. This is part 1, and there are several more already written if you like it and want to read more.
 
 

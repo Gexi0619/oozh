@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl fakes her eye therapy to keep wearing glasses, despite her mom's disapproval.
 ---
-
-                               
 My name is Jessie Wilson and I was 10 years old when I got my first pair of glasses. My parent’s both wear glasses, so they were not terribly surprised when I complained that I could not see things clearly across the street. My mom took me to the eye doctor that they both use, and I got my first pair of glasses. I really liked the fact that these glasses made everything I looked at really nice and clear, but my mom wasn’t too happy that I needed glasses. She had gotten her glasses when she was around the same age as me, and now her glasses are somewhere around a number 16 or 17. Or maybe one eye is 16 something and the other eye is 17 – I am not really sure, because mom doesn’t like to talk about her eyesight other than to say it is really bad. Dad’s glasses are number 6, and apparently his eyes are a lot better than moms, but he never goes anywhere without his glasses on or his contacts in. And mom won’t go out of the house without her contacts. I don’t think her glasses look as awful as she always complains that they do, and I wouldn’t make as much of a fuss about them as she does if I had to wear them.
  
 When I was around 11, I had been wearing glasses for over a year. Now things didn’t look nearly as clear, and I told mom that, so she took me back to the eye doctor. My first pair of glasses had been a number 2, and now my new ones were going to have to be a number 3 lens. We got my new glasses, and I wore them for a month, but then mom took me back to see the eye doctor. The doctor had suggested something to her that he called okatherapy or something to make my eyes less nearsighted. Apparently, I had to wear these special contact lenses every night when I was sleeping and after a few months I might be able to see perfectly again without glasses. 

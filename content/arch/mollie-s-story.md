@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teen discovers her unique vision after an accident, leading to a journey of self-acceptance and new glasses.
 ---
-
 Hi.  I'm Mollie, I'm 16, and I thought that I'd share a story with you.  I have what I now know to be natural monovision, but I never knew what it was for years, only that if I closed my right eye, distances were blurred, but I could see well up close, and that if I closed my left eye, up close wasn't as great,  but I could see for miles.  I noticed this from I reckon about the age of 12/13, but never told anyone, and it was my little secret, as I can see well with both eyes together or at least both eyes open.
 
 Anyway, this story is about how my stupid little brother (he is lovely really, he just gets on my nerves) changed everything.  I was just getting ready to go to the school end of term disco, when James came running in the room with his mate Josh, each brandishing a toy gun.  Just as I bent down to put on my shoes, James accidentally wacked me in my right eye with the gun.  It really hurt.  Obviously my plans were now changed for the night and the school disco became A&E, which was a shame, as that cute new guy in my year, Sean, has been looking my way lately and I was hoping that he was going to ask me to dance.

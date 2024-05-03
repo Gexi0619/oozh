@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jill's return from vacation sparks excitement as more girls join her in wearing glasses and hearing aids.
 ---
-
 It was about 2 pm Friday afternoon Vanessa and I had been out for lunch.
 As I walked into the shop my receptionist,said” Jill is in your office she has come back a day early and wants to see you”.
 “Hello Jill how are you,l did not expect to see you tomorrow, did you have nice holiday”

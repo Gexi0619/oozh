@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A girl overcomes obstacles, discovering her sight and hearing, and embraces her unique appearance to pursue her dream career.
 ---
-
 My parents never wanted me. To them a girl was a burden, I was clumsy and bumped into things and fell over a lot and did not learn to talk. All I did was carry the water and did all the the cleaning I was never sent to school.everybody laughed at me, they all used to shout out loudly,,here comes the crossed eye girl haha 
 When I was 6 years old my aunty came to vist us, and my father begged her to take me back to England with her.
 My aunty was very kind to me, she took me to see her doctor as soon as we arrived In England.

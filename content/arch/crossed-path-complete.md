@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When Andrea visits the ophthalmologist for new glasses, memories of her first pair resurface.
 ---
-
 Crossed Path
 
 Part 1

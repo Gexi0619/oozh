@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Part 5 of "The Strabismus Institute" follows the protagonist as they navigate the mall wearing their new glasses.
 ---
-
 The Strabismus Institute
 
 Part 5 - "Sightings" at the Mall

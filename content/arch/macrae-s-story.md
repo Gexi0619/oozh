@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In "Macrae's Story," a man candidly shares his humorous and relatable experiences with getting and wearing glasses.
 ---
-
 VANITY is a powerful force in Vision Correction and it causes many people to either not wear vision correction or feel very apprehensive about wearing glasses.  Usually, Vanity affects those of the Female persuasion more strongly than Males, but not always.  Some years ago, one of the Eyescene members, Macrae, posted his actual experiences.  They are well written and pretty funny to look back on.  It was serious to him, but Macrae has a very healthy sense of humor and is able to laugh at himself.  
 
 Julian, a long time member of ES, compiled Macrae's posts into "Macrae's Story".    I edited it slightly to hopefully make it easier to read by BOLDING the poster's name. Here it is.

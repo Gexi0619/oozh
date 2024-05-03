@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Experience the thrilling discovery of a hidden treasure and the unexpected romance that follows.
 ---
-
 READING THE WILL first makes the story more enjoyable.
 
 Besides work and our night course at the university, watching T.V or a movie we enjoyed going out on

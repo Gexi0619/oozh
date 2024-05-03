@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a whirlwind of change, Carla discovers her grandma's old glasses, bringing her world into focus.
 ---
-
 Carla was 19 years old. Carla was every boy’s dream – golden skin, petite but beautifully proportioned, beautiful teeth and a cheeky smile, bubbly personality and a fun girl to be with. She kept her hair in an urchin cut as it was easy to manage, and it was bleached blonde with the sun, giving her the appearance of a beach tomboy. Her regular attire was ragged cut-off jeans and either a flimsy halter top or tee shirt. It was warm in the South of France. Oh, and she was also highly myopic.
 
 Carla lived with her grandmother, Mimi, and was brought up by her and her father who was a fisherman, and who had died 10 years previously in an accident at sea. She never knew her mother, and never knew the reason why. It was never talked about. Carla and Mimi were very poor and just managed to live on a day-to-day basis in a run-down rented apartment in a back street of Sainte-Maxime on the Côte d’Azur. The landlord kept increasing the rent and Carla kept having to get extra shifts at the corner mini-market where she worked just to pay for the basics. There was never enough money to pay for luxuries like new glasses for Carla. She was still wearing her minus 8.50 glasses from her school days, although she knew she definitely needed a big increase in power. Her wages from the market would never cover the cost after the rent and food was paid for – and her own little guilty pleasure too. She loved her cigarettes. In fact she was unashamedly hopelessly addicted to them and managed to fit a pack into the household budget every few days. She said she would stop soon and save up for new glasses, but not yet. Not ready to give up a good friend yet.

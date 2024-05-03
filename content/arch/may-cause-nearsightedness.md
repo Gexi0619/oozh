@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A couple's blissful marriage takes a turn when pregnancy causes the wife's vision to deteriorate drastically.
 ---
-
 Donna and I were married when she was 24 and I was 26. We had dated for a year or so before we were married and had decided early in our dating period that we liked each other a lot, and that we should get married.  Donna was slim, with long brown hair and a nice petite figure and was a flight attendant for one of the major airlines. With our marriage came the perk of being able to fly for free – but only on standby.  As a flight attendant Donna had to pass a stringent physical and vision exam, and although Donna had perfect vision when she was hired, by now the airlines had changed their requirements enough so that people with small amounts of required correction could work for them
 
 No one in Donna’s family wore glasses until they were old enough to requite reading glasses and my family was the same except for my brother who was slightly myopic, but he very seldom wore his glasses except to drive.  If I remember correctly his myopia was so mild that he did not have his license restricted, but he did like to wear them when driving, especially at night.  So our families did not have a history of vision problems.

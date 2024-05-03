@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kelley desperately wants to wear glasses and explores induced myopia, ultimately seeking a way to achieve it.
 ---
-
 What is wrong with me, I like to wear strong glasses.part 1
 
 

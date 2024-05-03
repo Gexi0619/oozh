@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In Part 2, Jane's parents dismiss her new glasses and push her towards finding a husband. Jane rebels and faces a shocking revelation about her eyesight.
 ---
-
 Firstly, thank you for all the positive comments about Part 1. Also sorry for the long wait for part 2. When I posted part1,  i mentioned I was between jobs and was very touched by several messages of  'sorry to hear that' and best wishes.  A few months later I did get another job,. That didn't work out but fortune smiled on me at my great age and I soon got another in my field.  Those comments meant a lot to me. Some, possibly many, of those messages came from old 'eyesceners' , now 20 years ago.
 Now, the social isolation of Covid 19 give me the impetus to resume writing. This is Part 2, there is a part 3 conclusion already in outline.
 

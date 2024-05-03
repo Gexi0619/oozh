@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A high school student reluctantly starts wearing glasses, but soon realizes the impact they have on their vision and appearance.
 ---
-
 I don t want to be seen, wearing glasses! 
 
 

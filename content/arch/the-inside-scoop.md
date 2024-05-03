@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "An unknown actress's life unfolds, with secrets and a nearsightedness that shaped her career. Will her confidant speak?"
 ---
-
 The Nearsighted Actress.
 
 I watched the man as he left the funeral parlor.   Even if I hadn’t known approximately how old he was his stooped walk revealed his age.  He was Patrick Hill, and the wake he was just leaving had been for Sandi Porter, an actress who had shunned the limelight for many years.  Patrick had been with Sandi since she had been discovered by the studios, first as a driver, then as a confidant, and maybe even as her lover since she and her husband split a good 40 or so years ago.

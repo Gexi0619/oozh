@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two friends discover their love for men who wear glasses, leading one to question her own appearance.
 ---
-
 I only love men, who wear glasses.
 
 

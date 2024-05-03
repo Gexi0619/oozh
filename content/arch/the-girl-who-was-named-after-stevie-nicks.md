@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Steph, named after Stevie Nicks, finds love in Jason despite her strong glasses and embraces motherhood.
 ---
-
 When I was born to John and Mary Nichols in 1984 my dad was a huge fan of Stevie Nicks and the 70’s group Fleetwood Mac.  To this day, some 32 years later, I still hear Fleetwood Mac songs running through my head at times.  And, because I was a girl I guess my dad thought it would be cute to name me Stephanie Lynn Nichols. Was I called Stevie Nicks all through my school years?  You can bet I was, and until 5 years ago when I married Jason Richardson I would cringe whenever anyone would make a joke about me being named after Stevie Nicks.  Now I have managed to change things so that most people who have not known me forever call me Steph, and my name tag at the pharmacy where I work simply says Steph so most people who have just met me only know me as Steph.  And that is just fine with me.
 
 Jason is 2 years younger than I am and we often put up with a bit of teasing about him robbing the cradle.  But he was 24 and I was 26 when we married, so the 2 years isn’t really that much of a difference.  I had figured that no man would ever be interested in me because of my strong glasses. When I first met Jason I had just had gotten my new glasses with their -25.00D prescription and I was feeling pretty self-conscious wearing those thick myodiscs.   Even though I stand about 5’8”, weigh 135 lbs, and am quite attractive, with long honey blond hair, nice legs and a pretty decent bust my glasses had, in the past, turned off more than a couple of decent looking men. And if any guy ever asked me out and then went on to ask me why I didn’t wear contacts he was never even considered for a second date.

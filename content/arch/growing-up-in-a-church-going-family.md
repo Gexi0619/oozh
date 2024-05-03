@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A rebellious teenager navigates strict religion, a botched surgery, and a life-changing decision on his 18th birthday."
 ---
-
 This story is fiction. I did not grow up in a church going family. I wasn't born until 5 years after the story starts and I've never set foot in Wisconsin.
 I was born in 1954 in Wisconsin Rapids Wisconsin which happens to be the home to late stock car racing legend Dick Trickle though I did not know him but knew some of his family and may have met him once. To say my family was a strict church going Baptist family would be an understatement. Growing up we went to church every Sunday, Wednesday and anytime there was a church function we had to be there. My parents did not smoke, drink or cuss or approve of anybody who did.
 When I was 4 I had my tonsils out and the operation was botched. My family received a settlement which my parents had control of until I turned 18 in 1972. I had been told by age 4 before the operation I was talking clearly but after the surgery it took about 6 years of speech therapy before I talked somewhat normal and I hated every minute of it. Looking back I believed some of the money was spent where it shouldn't have been going to the church. There would still be enough left for me to have a nice income off interest at 18 including paying for college if so desired.

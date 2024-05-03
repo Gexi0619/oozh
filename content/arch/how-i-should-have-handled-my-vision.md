@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A lifelong struggle with vision issues leads to missed opportunities for eye exams and glasses.
 ---
-
 This is going to be the story of how I should have handled vision issues I have had at least since the 6th grade.
 
 In 2nd or 3rd grade I failed the hearing test. My Mom set an appointment on Saturday with a Doctor that did eye, ear, nose and throat. In fact before I started school this Dr.  took my tonsils out. My Mom wanted to get my eyes checked while I was there but they didn't do eye exams on Saturday. I did not know enough about vision then to say it was a good idea. This was about 1967 or 68. During the same time period I complained of headaches while or after reading. I should have complained more and maybe I would have had my eyes checked. Before going back to work full time around 4th grade my mom during the summers would mention getting my eyes checked. I should have said let's do it.

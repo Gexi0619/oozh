@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kelley, Ann, and Kathy are close friends who discover the power of glasses to improve their performance.
 ---
-
 Kelley, Ann and Kathy had been friends since grade one. They lived in the same area . not far from the Mall . school, the arena and sports fields .
 Kelley a red head with some freckles and always had a big smile.
 Ann was a petite blonde with blue eyes, a very sweet type of girl.

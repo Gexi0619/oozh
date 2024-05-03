@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A mother starts wearing glasses, leading her daughter to question her own eyesight and embrace her own uniqueness.
 ---
-
 “Well, what do you think of my new look?”
  
 Scarlett looked up from her homework.

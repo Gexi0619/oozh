@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Glasses became a symbol of belonging and acceptance in a young girl's family, but she's the outsider.
 ---
-
 At last, I feel like I belong.
 
 

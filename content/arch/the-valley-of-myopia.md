@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An isolated mountain community thrives despite a unique eye condition that affects its inhabitants' vision.
 ---
-
 I parked my car near the base of the mountain and changed to my hiking boots. I put on my hiking belt and put my water bottles in the pockets.  I made sure I had enough sunscreen on, and I put my wide brimmed hat on my head.  A pair of sunglasses completed my outfit, and I felt I was now prepared to hike into the mountains.
 
 It took about 3 hours before I reached a point where I could see into the valley below. I had heard that there was a village there, but no one I had talked with seemed to know much about it. What I had found out was that near the late 1800’s a wagon train of 10 family’s had found their way into the forested valley.  The location had seemed like a good place to spend the winter, so they had created a winter camp.  By spring they had scouted around only to find out that the valley they were in had only one way in or out, and they all decided that the valley would be a nice place to settle in.  So for many years these 10 families remained isolated in the valley.  They had many children, and they were very careful that they did not inbreed too soon.

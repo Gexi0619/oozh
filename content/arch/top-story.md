@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Gorgeous TV presenter Nancy discovers a unique solution to her vision troubles, with surprising results.
 ---
-
 -------------
 Top Story
 -------------

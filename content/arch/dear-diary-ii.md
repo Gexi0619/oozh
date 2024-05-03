@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kirsty gets new glasses, experiences the world in newfound clarity, and contemplates her future eye health.
 ---
-
 ----------------
 Dear Diary II
 ----------------

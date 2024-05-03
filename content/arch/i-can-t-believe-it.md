@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter with glasses sparks a newfound appreciation for beauty and the power of vision.
 ---
-
 .
 
 

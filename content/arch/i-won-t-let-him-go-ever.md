@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A girl's friendly nature leads to unexpected encounters, including a mysterious guy with powerful glasses.
 ---
-
 Being super friendly was always my thing. I have always been the kind of girl that can’t be left alone for more than 2 minutes without making a new friend, and that has come with good and bad things.
 
 On the positive side, I have always been welcome almost everywhere and people have a good concept about me. On the negative side, me talking to guys created insecurities on my ex boyfriends and the 3 relationships I’ve been in ended because of that.

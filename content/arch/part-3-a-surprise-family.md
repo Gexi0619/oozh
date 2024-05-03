@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A mysterious connection between two strangers unravels as they discover an uncanny link through a pair of old glasses.
 ---
-
- 
 The restaurant where we would be dining was a short walk from Ben’s building. As we walked, he pointed out some of the art galleries and as we walked past one of them, he asked my opinion of the painting on display. I told him that I liked it and after discussing it we went on to the restaurant. The office had called ahead for a reservation, and we were seated immediately. I thought Ben was looking at me rather strangely and I called him on this.
  
 ‘I was just wondering how it was possible that you can see so well wearing my Nana’s old glasses?” Ben asked.

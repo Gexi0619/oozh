@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Gemma's newfound freedom after passing her driving test allows her to escape into her studies and personal life.
 ---
-
 Passing her driving test was probably the best thing that had ever happened to her, Gemma White, mused to herself.  She felt more of an adult, and she had a bit more freedom, too.  Her Mum had a small car, which she was able to borrow under two conditions: the first was that she always had to ask before borrowing it; the second was that she had to pay 25p per mile if it was for her own personal use.  However, her parents would pay her the same rate if she was doing an errand for them, and they always made sure there was fuel in it.  In practical terms, a visit to the shops for some groceries a couple of times a week meant that she was able to take herself off to the coast at the weekend, without having to pay a penny.
  
 This freedom was priceless to Gemma, as she was studying for her A-levels in English, Theatre Studies and German.  It gave her the opportunity to get out of the room that she shared with her younger sister, Emily, and enjoy some peace and quiet.  It wasn’t that she didn’t like her sister, but as Emily was three years younger, they had different priorities.  She didn’t really want Emily to be able to listen in to conversations she might be having either with, or about, boys she fancied.

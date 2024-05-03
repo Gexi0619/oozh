@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A perfect life is shattered when a car accident leaves their daughter with a serious brain injury and nearsightedness.
 ---
-
-                                      
 Life was going extremely well for Ginny and I. We had met at university and we married soon after graduation. Ginny had trained to be a nurse, and I was the IT manager for a large trucking company. We had not realized that Ginny would end up being pregnant almost immediately after we were married, but now we had recently celebrated our 8th anniversary and we already had two children. Abigail had now turned 7 and Mitchell was 5. Everything  was really quite perfect with our lives.
  
 And then things changed in a flash of bent steel. It had been a beautiful Sunday afternoon at the beach, and we were returning home when traffic slowed to a stop in front of me. I braked sharply and managed to come to a stop just a couple of feet before hitting the car in front of me. But we were not that fortunate because the car behind me smashed into our rear. Even with me still holding the brakes on our car was shoved into the one on front of us and we were all screaming.  The air bags exploded, trapping Ginny and I in the front seat. I could hear the kids screaming in the rear, and I managed to deflate my air bag with my pocketknife, but the driver’s door was jammed shut. It seemed to take forever, before emergency personnel managed to extract us from the car and we were all taken by ambulances to the very hospital where Ginny worked.

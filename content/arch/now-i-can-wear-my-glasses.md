@@ -7,11 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Unforeseen Desires: A thrilling tale of love, secrets, and the unexpected allure of glasses."
 ---
-
- Now I can wear my glasses.
+Now I can wear my glasses.
 
 
 

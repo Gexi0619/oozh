@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this gripping tale, a teenager bluffs his way into glasses and accidentally induces myopia, facing the consequences.
 ---
-
 In 2017 14 year old Larry somehow convinced his new Optometrist he couldn't see the 20/20 line anymore. Larry has figured out which line is 20/20 by talking to his friends Dad who is an Optician. The man explains to Larry most of the time when letters are projected on a wall the bottom line is 20/15 and the next line is 20/20. Larry had on previous eye exams showed very mild Astigmatism that was not bad enough for glasses only in his right eye. The autorefractor showed the Astigmatism but not Myopia. The catch was Larry wanted glasses with a prescription but his now retired former Dr. refused to prescribe any correction.
 Larry's new Optometrist does prescribe -.50 glasses for each eye with an Astigmatism of -25 and 22 for his right eye. A happy Larry is told he does not need to wear his glasses full time just when needing to see far away and reading if he gets headaches.
 Larry gets the popular black "nerd"' frame glasses and despite what he is told wears them full time almost from day one. The only exception is Larry who could actually read some of the 20/15 line takes his glasses off to read because it is more comfortable.

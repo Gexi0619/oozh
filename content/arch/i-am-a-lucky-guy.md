@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In search of glasses-wearing girls, Kevin discovers unexpected connections and the potential for something more.
 ---
-
 I am a Lucky Guy!
 
 

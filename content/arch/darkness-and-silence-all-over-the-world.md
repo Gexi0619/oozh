@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Darkness and Silence: A woman with extraordinary glasses holds the key to humanity's survival against alien invaders."
 ---
-
 ----------------------------------------------------  
 Darkness and Silence All Over the World  
 ----------------------------------------------------  

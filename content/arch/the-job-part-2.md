@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jane's struggle with her parents' disapproval takes a surprising turn after a driving lesson mishap.
 ---
-
 Firstly, thank you everyone for the kind comments, and concerns about my 'in between jobs' status.  The good news is that I've secured a new job (at a much improved salary)  but the start date may be a couple of weeks away, enough time I hope, to complete the series - which will now be 3 episodes.
 
 I also have to apologise for an author's note digression in the middle of this episode - it is sort of  instrumental to the plot.

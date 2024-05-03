@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy's obsession with wearing his sister's glasses leads to a surprising discovery about his own eyes.
 ---
-
 My sister Diane, who is 6 years older than I am, got her first pair of glasses at the age of 13.  I remember being fascinated by the fact that she could actually see through those 2 pieces of curved plastic that were now always in front of her eyes every waking moment, and I remember spending a lot of time wondering what was wrong with her eyes to make them need to wear glasses. I did ask her one day why she wore glasses and Diane told me she was nearsighted and that anything that was very far away became all blurry to her without her glasses so she really needed them to see clearly.
  
 I was only 7 years old at the time, and I decided I would like to wear glasses so I could be just like Diane.  At the time my eyes could see everything just fine so I knew I would not be able to go to the doctor like Diane did to get a pair of glasses for myself. By the time Diane was 14 she had already needed to get new glasses 3 times and by the time she had her 15th birthday she had 5 pairs of her old glasses in her dresser drawer.  I started to sneak into her room when she wasn’t around and I would take all of her old pairs out of their cases and would try them on to see if I could see through them.  At first I could only see things clearly through the lenses of her first 3 pairs, but the longer I wore her glasses the easier it became to see through the two pairs that were stronger.  Finally, after about 6 months of doing this I could actually see fairly well through the most recent pair of glasses that Diane had worn.  This pair was the only pair that I could have worn out in public, because it was the one pair that had frames that would look right for a boy to be wearing. But I couldn’t take this pair of glasses to my room yet because I knew that Diane would still sometimes wear them at night when she was doing homework.

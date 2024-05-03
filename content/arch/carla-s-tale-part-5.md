@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Paul and Carla find themselves in possession of millions, but with a dangerous secret looming, what will they do next?
 ---
-
 Please make sure you have read Carla’s Tale Part 1, 2, 3 and 4 before reading this.
 
 Paul looked at Carla. Carla looked at Paul. They both looked at the case again. Both together, at exactly the same time, they exclaimed “WOW!” In front of their very eyes were bundles and bundles of used American dollars packed tightly into the case. Paul took a bundle out. “These are fifty grand bundles,” he said incredulously, with a smile from ear to ear, and there are about a hundred here! Do you know how much that is? DO YOU?”

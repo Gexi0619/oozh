@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two best friends navigate the world of glasses together, discovering the power of seeing clearly.
 ---
-
 When I was 3 and barely even able to talk I met Ava Holmes, the girl who would be my BFF(that’s best friend forever for those who don’t know the acronym).  We lived in the same neighborhood, and our mom’s took us both to playschool, where we immediately bonded.  Ava was a blond, with hair so light it was almost a white blond, and my hair, which was also fairly light was more like a dirty blond, or as my mom called it honey blond. Ava had deep blue eyes and very fair skin and I had brown eyes with gold flecks with a bit darker complexion.  Our birthdays were within weeks of each other and that meant that we would both start junior kindergarten together when we were 4.
 
 We were still inseparable by the time we were 12. If I wasn’t at Ava’s house Ava was at mine.  Our parents had bought a second twin bed for each of our rooms and our fathers referred to us as their twin daughters.  One morning we woke up at her place and Ava was looking out the window of her bedroom.

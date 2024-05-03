@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Twin sisters Heaven and Angel each have their own secret about their impaired vision, but when their secrets start to unravel, they must face the truth and find a solution.
 ---
-
 Hi, I am kind of new here. Last month I posted on another topic about a question I had. I was blown away by how kind, helpful, and welcoming everyone was. While on the site, I found my way to this topic filled with great stories. I read and enjoyed so many of them. There are many talented writers in our midst. As I read more and more of them, I kept getting the urge to write one too. I am no writer, and this is the the first story I have written since grade school. However, I hope even one person enjoys it half as much as I enjoyed the wonderful stories I read. 
 
 Disclaimer: I do not know much about glasses or vision. If I made any technical errors that is why, please forgive me. 

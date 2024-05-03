@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Meet Gene, a 13-year-old loner who finds a passion for bowling, defying his parents' expectations along the way."
 ---
-
 Back in 1980 Gene Zervakis is a 13 year old only child from a successful family. Mom Diana is a Podiatrist and Dad Jim is a dentist. Gene is a bit of a loner with only a few friends and despite his parents encouraging him to get involved in more school activities he resists until the start of the 80-81 school year. Gene who is big for his age comes home from school early in the year and says he wants to join the bowling club/league at school. Gene's parents are thrilled though neither one of them have ever been bowling and no nothing about the sport. When Gene was about 10 an uncle no longer living in the area had taken him bowling a few times. Gene then asks his Mom what size shoes he needs to rent? Diana does not know despite being a podiatrist that a special shoe is required for bowling and asks if another person has worn the same shoes before and when told yes asks can you buy your own? The podiatrist dose not want her son wearing used shoes and when she finds out bowling shoes can be bought decides Gene will have his own. Dad Jim says he has been outgrowing shoes every 6 months so why not rent. Diana says I don't care no kid of mine is going to wear used shoes. Diana in her practice has seen too many problems with used shoes and money is not an issue.
 
 Gene gets his own shoes and starts in the league at first his average is only around 100 using alley provided bowling balls. Come Christmas time when asks what he wants Gene says his own 16 pound bowling ball drilled for his fingers and among other things he gets though that weight is not usually what a 13 year old uses but is what he has been using when he bowls. With his own bowling ball drilled to his fingers Gene's average goes up thru the rest of the school year until it's around 150 not bad for a 13 year old. Gene makes his parents happy by making a few new friends in the league. During that summer between Gene who lives close enough to ride his bike to the bowling alley practices and after getting a new pair of size 11 shoes up from size 9 is coming close to 200 in practice games.

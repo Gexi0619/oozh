@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A Christmas tale of friendship and sacrifice as Carolyn tries to help her friend get glasses.
 ---
-
 X Mas tale
 
 The house with  the Christmas lights, is where I live.

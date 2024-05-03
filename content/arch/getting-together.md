@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter in a park leads to a passionate relationship, but with secrets hidden behind glasses.
 ---
-
 I was 20 years old and had just come back to my hometown from long travells through Africa and the Middle East. I had just started to work as clerk in a big warehouse and planned to start studying pharmacy as soon as possible. 
 One evening in may, I was 20 years old, I took a walk in the big park of our town, the atmosphere was magic. It was one of the rare moments when light, the smell of the air, the sound of birds and the humming of the town highten the senses and emotions. On that evening in this park with its budding trees I ran into Maria by chance. I knew her from school and had met her on a couple of occasions in the tube, in bars, discos or just on the street. On this special day we spent an enlighting evening together and ended up in her flat, where things happened as they had to happen. We started a close and tender relationship that still goes on today. 
 Maria, who had to wear glasses since I knew her as a kid, was lying in bed beside me without glasses one morning a couple of days after we came together. It was maybe the first time I realised the difference between her with or without glasses. Being curious I asked if it makes a big difference to wear glasses or not to her.

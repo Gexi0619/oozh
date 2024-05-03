@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Deirdre stumbles upon her doppelganger, Janice, and their unlikely friendship reveals hidden secrets and shared pain.
 ---
-
 Story Three: Deridre's Doppelganger
 
 

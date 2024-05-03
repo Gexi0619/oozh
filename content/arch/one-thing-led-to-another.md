@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young person navigates life with glasses and contact lenses until a new prescription changes everything.
 ---
-
 I don’t remember getting my first pair of glasses.  I must have been two and a bit at the time, as I am clearly wearing them in the photos from my third birthday party.  The only other people in the photo who wore glasses were my grandparents.  My brother has never had glasses, and my parents only started wearing them occasionally for reading a couple of years ago.  I wore my glasses all the time until I was ten, but because I really loved my sport, they kept getting broken, so when the optician suggested contact lenses might be a better idea, my parents agreed willingly as it saved them frequent journeys into town just to get my glasses fixed.  I don’t know how strong they were then, but I could not live without them, so it was always an urgent trip, whether it was convenient or not.  Since then, visits to the optician have only been for annual check-ups.
 
 My last visit was last month.  I had to admit to getting a few headaches when studying when asked about my general health, so after checking my distance vision, I was made to read a card close up, and given some more lenses to try out.  In the end, I was told that, although my distance vision was virtually unchanged, I was being prescribed bifocals and that I should also consider getting reading glasses to wear over my contact lenses.  At least this meant that I would get new glasses and not have to make do with a three-year old, slightly scratched pair that I got when I was 14.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a gripping family drama, twins Karen and Steve navigate online school and their contrasting vision correction choices.
 ---
-
 15 Year fraternal twins Karen and Steve are completing their freshman year online as our most students in the US. Mom Cary is an MD who has never been in private practice. Cary after graduationg med school worked as a hospitalist and ER physican before taking a teacing job at the hometown medical school for 2 reasons. One is the hours are more reasonable and the twins can get any undergraduate degree at any state college. Dad Kevin is an Optometrist working for a practice adjacent but independent from a major optical chain store. As for smarts the apple doesn't fall far from the tree. Both twins are excellent students and Steve at age 14 tried out for the Jeopardy! teen touurnament barely missing the cut. Steve plans to try out again at age 16.
 
 Both twins had an eye exam before 1st grade. Steve small for his age at the time was barely Hyperopic and glasses were not advised at the time. Karen was Myopic and was prescribed of -.75 in both eyes. Karen's prescription is now about a -6. Steve who grew quite a bit for his age between 1st and 2nd grade still Hyperopic and was prescribed glasses of +2. Karen took to wearing glasses right away whlle Steve was able to accomadate until his vision got to the point where he had no choice but to go full time at what is now in the range of +5. Steve has Astigmatism while Karen does not. By age 10 Steve was hinting at contacts but both his Optometirst and his Dad said wait another year. Steve does get contacts the next year and does very well with them. Steve as instructed wears his glasses in the mornings before putting in his contacts and at night after taking his contacts out. 

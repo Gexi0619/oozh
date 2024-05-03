@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A married man's secret fascination with glasses takes a dangerous turn when he becomes infatuated with a coworker's teenage daughter.
 ---
-
 “Analie got her braces off.  Doesn't she look cute? My colleague Dan said as he showed me a picture of his daughter.
 
 “Yes, she does. Very nice.” I replied.

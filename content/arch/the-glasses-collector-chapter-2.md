@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Cindy and Ken bond over glasses and their relationship deepens as they navigate life's challenges together.
 ---
-
 The collector chapter 2
 
 

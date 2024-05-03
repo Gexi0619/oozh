@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A group of motorcycle friends embark on breakfast rides, but one waitress catches one man's attention.
 ---
-
 It is not often that I miss a week riding somewhere for breakfast with a group of my motorcycle friends. We are a diverse group of retirees and for a Tuesday ride we are on a variety of motorcycles, ranging from BMW’s to Harley’s with a smattering of Honda’s Yamaha’s and Suzuki’s in the bunch.
 
 Early Spring and late Fall are the best times in this area for riding, because the summer around Vegas is way too hot, and December and January are just a little too cool for early morning breakfast rides.  But this year November was a fantastic month for decent riding weather, and we had some great trips.

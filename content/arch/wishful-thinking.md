@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Two siblings navigate the world of glasses, jealousy, and wishful thinking in this heartwarming tale."
 ---
-
 Wishful Thinking.
 
 

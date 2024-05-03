@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's journey with disability becomes even more complicated as she faces the possibility of another amputation.
 ---
-
 Please read part one first 
 
 “Well if you want to turn the white lies into fact then you had better take your shorts off so I can play with your stump when we get home dear xx hug and you still have 7 more cigarettes to smoke yet today hahaha.”

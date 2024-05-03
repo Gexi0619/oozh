@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man races against time to save Debra from jumping off a building, unraveling their shared secrets.
 ---
-
 --------------
 Rescue Me
 --------------

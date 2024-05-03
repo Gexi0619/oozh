@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A girl's desire to wear glasses leads her to make a risky decision that changes her life.
 ---
-
 The night, I lost my virginity.
 
 

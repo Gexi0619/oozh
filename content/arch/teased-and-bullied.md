@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Follow Hailey Rodriguez's journey as she navigates life with high myopia, facing bullying and self-doubt.
 ---
-
 Since I learned how to write I have kept a dairy of my life so I can go back and read about that happened to me and when they happened throughout my life.  My name is Hailey Rodriguez, and I am the youngest daughter of Juan and Muriel Rodriguez.  I have a brother Jose, who is 2 years older than I am as well as a sister Paulina, who is 4 years older than I am.  I was born in 1990, and by the time I was 3 years old, from what my mom has told me, my parents knew that there was definitely something wrong with my eyesight.  My mom took me to the hospital to see an eye doctor, and I was prescribed my first of many pairs of glasses. These glasses changed my life.  For the first time in my life I could see things clearly that were further away than the tip of my nose. Apparently I was so terribly nearsighted that no glasses could give me vision that was anything like what other people considered normal. Even though my glasses gave me a distorted and minified view of the world around me, once my brain got used to being able to decipher what I was seeing through the strong lenses at least I could see well enough to function. At the time I had no idea that other people could see a whole lot better than I could though.
 
 When I was a child I would sometimes ask my mom why I needed to wear glasses, but mom couldn’t tell me anything other than that the doctor had told her I had likely been born with congenital high myopia, and I would have to wear very powerful glasses for the rest of my life.  When I started kindergarten at the age of 5 I was the only child in my class that wore glasses.  It wasn’t until I was in third grade that there was anyone else in my class that wore glasses, and the other little girl had glasses that magnified her eyes behind her lenses, instead of making them very tiny like my glasses did.

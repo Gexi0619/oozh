@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: We both navigate the challenges of smoking without teeth, finding solace in clay pipes and each other.
 ---
-
 New sent away 2a
 
 

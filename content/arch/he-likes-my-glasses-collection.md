@@ -7,11 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's passion for collecting glasses leads her to a career in optometry and love unexpectedly.
 ---
-
- Prompt 1
+Prompt 1
 
 
 

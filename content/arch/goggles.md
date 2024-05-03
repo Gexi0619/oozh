@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Childhood friends Shona and Juliette navigate primary school together, bonded by their striking resemblance and shared interests.
 ---
-
 I have known Shona Fisher since we were in primary school.  We didn’t start in the same class, but when my classmates starting whether I had a sister in Purple Class, I just had to meet her.  I didn’t think we looked very much alike, but we did both have long, light brown hair and brown eyes.  Even so, it was over a year before we became friends, as she lived a 5 minute drive from the school in one direction, whereas I lived a 10 minute walk away in the opposite direction.
  
 When we reached year 2, we were put into the same class.  I’m not sure whether it was a good idea that Mrs. Johnson sat us side-by-side or not, but that is certainly what caused our friendship to start to grow.  As we did more and more together, we became known as “the Twinnies”;  Shona was “Big Twinnie,” on account of the fact that she was about an inch taller than me, and I was “Little Twinnie.”  Certainly, more than once, Mrs. Johnson called me Shona, or called Shona, Juliette (my name), and we did nothing to help; we had no choice in our uniform, but when one of us had a haircut, the other followed suit within a couple of days.  Once or twice, when Mrs. Johnson was away, we swapped seats for the cover teacher; sometimes we answered to each other’s names, and on other occasions, we didn’t.

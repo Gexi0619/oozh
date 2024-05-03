@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Nicole, following in her family's footsteps, anticipates needing glasses and desires to feel included.
 ---
-
 When both of your parents wear glasses because they are short-sighted, and your older sister does, too, you know it’s really only a matter of time until you join them.  And so it was with me, Nicole Greene.
  
 Gemma, my sister, is seven years older than I am.  I don’t really remember the time when she didn’t have them.  I vaguely recall the day she first got them, though.  It was shortly after Christmas, 2012; it may have been the very beginning of January 2013.  I was five years old.  I was thrilled that I was able to do the grown-up version of the eye test and read the letters on the chart on the far wall at the optician’s.  No more little pictures for me – I could read the letters, and was a little surprised when Gemma couldn’t.

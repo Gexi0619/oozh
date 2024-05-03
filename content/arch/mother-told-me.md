@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A warm family reunion reveals surprising transformations as glasses become the latest fashion trend.
 ---
-
 My mother, told me !
 
 

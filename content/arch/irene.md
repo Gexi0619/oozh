@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a workplace filled with chaos, Irene's intelligence and curiosity lead her down an unexpected path.
 ---
-
 Irene - a fantasy story inspired by a true event.
 
 I see her every day at work, and she's my favorite colleague by far. You know how some people seem to get everything done, and effortlessly at that? Irene is that kind of woman. She's a professor and a researcher, and yet somehow also finds the time to mentor PhD students. She's curious, intelligent, extremely knowledgeable… it would be obnoxious if she weren't also such a friendly and outgoing person.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man fulfills his fetish by persuading his girlfriend to wear increasingly thick glasses, ultimately finding the perfect pair.
 ---
-
 Hey there!
 
 So, i'm gonna tell you a real story here. Hope you enjoy!

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's journey to embrace wearing glasses leads to unexpected opportunities and a newfound understanding.
 ---
-
 After the eye exam the optometrist told Amy s mother , that Amy was myopic and should wear glasses.
 Is there no operation to fix it?
 No , she is to young for an operation , and her eyes will most likely change some more while she is still growing.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Dakota, a nearsighted teenager, discovers the power of a mysterious pair of glasses in this gripping continuation.
 ---
-
 This is the continuation of Glasses in The Park                                        
  
 My name is Dakota Thomas, and when the events that I am about to describe happened I was almost 15 years old. I lived with my parents and 2 sisters in an old farmhouse just north of the city that was now in the middle of a new development.  I had just graduated from grade 9 with honors and was going to be in grade 10 in the fall at Saint John the Baptist Senior High. I was very nearsighted and wore glasses with a prescription of -21D. And, although I had only been a glasses wearer for the past 6 months, I loved wearing my glasses.

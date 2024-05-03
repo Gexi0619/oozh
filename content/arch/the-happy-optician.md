@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kerry's journey to embracing glasses and finding confidence in her newfound vision.
 ---
-
 Kerry is a very happy optician , here is her story
 
 Kerry was a good student, a pretty looking girl with a pleasant personality.

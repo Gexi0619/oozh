@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two sisters' perspectives on wearing glasses reveal surprising revelations about self-confidence and personal growth.
 ---
-
 So smart, and so dumb
 
 

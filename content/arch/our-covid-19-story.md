@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Unfinished stories beckon, but one stands out—a dark, far-fetched tale of love, glasses, and a grim reality.
 ---
-
 I have lots of unfinished stories in various states of completion.  Some need just the creativity and inspiration to devise a suitable ending; others seemed like a good idea at the time but fizzled out before the plot properly developed.  And I feel anything I write will be feeble compared to the excellent stories posted by the likes of Andrew and the incomparable and wonderfully prolific Specs4ever.
 But the increased amount of free time arising from the current lockdown allowed me to think about a story which, I thought didn't really need an ending.  It may be a little dark for some tastes and you may think it far-fetched.  But if I had six months ago described the situation the world currently finds itself in, you'd have said that was far-fetched.
 

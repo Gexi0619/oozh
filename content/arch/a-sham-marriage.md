@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In 80s Japan, a young soldier is offered a marriage for money scheme with unexpected consequences.
 ---
-
 Back in the mid 80's when I was serving in the military I was posted to a base in Japan.  As a kid of 24 I thought I knew everything, but military service had knocked a lot of the cockiness out of me, and I was starting to smarten up about a lot of things in life.
 
 My buddies and I were on leave in Tokyo one weekend. They had all gotten shit faced the night before and were back at the hotel sleeping off the inevitable hangover.  But I had been a little smarter than they were and had nursed a couple of drinks throughout the evening. I knew I was never going to have a better chance to see Tokyo, and I didn't want to spend the weekend wasted, sleeping it off in a fleabag hotel room.

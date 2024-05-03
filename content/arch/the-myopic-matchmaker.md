@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A school bus driver's encounter with a young girl wearing thick glasses leads him on a new career path.
 ---
-
-                                    
 I slowed the school bus and applied the orange flashing warning lights to indicate to the cars behind that I was slowing to pick up a student.  As I drew closer and was about to stop I activated the red stop lights, and brought the bus to a complete halt. My new route map had indicated there was a student pickup at this point and a young lady of about 12 or 13 was waiting at the side of the road for me. She came to the open door and as she walked up the steps into the bus I couldn’t help but notice that she was wearing what was likely the strongest pair of minus glasses I had ever seen. They were myodisc lenses set in a fairly small frame size, and I could tell from the reflections that the front of the myodisc lens also contained some of the prescription.  She looked at me and I think she could tell that I was staring at her, so she returned my stare as if to say, “I know they are thick, so just go ahead and get a good look.” I was speechless for a second, but managed to say, “I like your glasses,” as she walked to her seat. I went on to pick up the kids on my route and arrived at the school by 8:30. As she got off the bus and walked past me she spoke.
  
 “You like them, but you don’t have to wear them. I have to wear them, but I don’t like them.”

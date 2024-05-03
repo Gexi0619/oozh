@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jennifer, a popular and helpful student, helps her classmate embrace wearing glasses and discovers their exciting allure.
 ---
-
 Jennifer , a glasses wearing brunette, with a pleasant smile and personality, was very popular with the university students in her year.She was always ready to help somebody, either with school work or another problems they may have.
 She was a top of the class student, and also very knowledgeable of the latest fashion trends and make up, and she always looked it.
 Karen one of her classmates asked her one day, if she could help her.

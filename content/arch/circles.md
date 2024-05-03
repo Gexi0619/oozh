@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Sally's daughter suffers from headaches while reading, prompting her to consider different causes besides eyesight.
 ---
-
 Circles
 by Andrew
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A gripping tale of a young man's struggle to get glasses and his triumph in the end.
 ---
-
 I hope everyone enjoys the second part of the story.
 
 I should have added, I had always had in interest in Electronics.   It turned out to be my career.   It was important to me to have good close, detailed vision.   That was why I needed a higher reading add so I could see closer.   As other folks have posted before, some eye doctors are stingy about prescribing reading adds.   Of course, being younger, that even made matters worse when seeing an eye doctor.  

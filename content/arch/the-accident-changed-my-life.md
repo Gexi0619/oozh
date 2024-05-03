@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: After a surprising eye exam, Sadie's new glasses reveal unexpected changes and their impact on friendship.
 ---
-
 The accident, changed my life.
 
 

@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Abbey's obsession with glasses leads to disappointment, while Kristy's high prescription glasses become a fashion statement.
 ---
-
-                                        
- Abbey Costain was 14 and in her second year of junior high when she first realized that she had an obsession towards eyeglasses. Abbey didn’t just like eyeglasses, she wanted to be able to wear them and she really liked glasses that had minus lenses the best.  She then read everything she could get her hands on about myopia and myopic progression. Learning that if she wore a pair of myopic glasses all the time it would likely make her shortsighted led to her borrowing a pair of her classmate Sherry’s old glasses, and she tried to wear them every day in school. 
+Abbey Costain was 14 and in her second year of junior high when she first realized that she had an obsession towards eyeglasses. Abbey didn’t just like eyeglasses, she wanted to be able to wear them and she really liked glasses that had minus lenses the best.  She then read everything she could get her hands on about myopia and myopic progression. Learning that if she wore a pair of myopic glasses all the time it would likely make her shortsighted led to her borrowing a pair of her classmate Sherry’s old glasses, and she tried to wear them every day in school. 
  
 For the next 2 years Abbey wore Sherry’s glasses as much of the time as she possibly could, but to no avail. When she was 16 and she had her eye test for her beginner’s driver’s license the lady who operated the vision tester told Abbey that her vision was even better than the 20/20 that was considered normal. Abbey finally gave up in disgust, and while she was not happy about the fact that her eyesight was extremely good, she decided that it just wasn’t ever going to be possible for her to wear glasses – at least not until she was older, and she was forced to get glasses for reading like her mom wore.
  

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Lyra Starfire and her wing investigate Xaran activity, leading to a crash landing on a mysterious planet.
 ---
-
 -----------------------------------------------
 Lyra Starfire and the Legion of Space
 -----------------------------------------------

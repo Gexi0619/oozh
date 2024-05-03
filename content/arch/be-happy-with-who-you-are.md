@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a happy household of mixed twins, one child's journey leads the family to embrace acceptance and change.
 ---
-
 Be happy, with who you are.
 
 

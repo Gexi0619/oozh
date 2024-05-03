@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a twist of fate, the protagonist's roommate becomes like a sister and they navigate life together.
 ---
-
 I promised I wouldn't leave you hanging so here is Part 2
  
 Bailey had become almost like a sister to me and had taken to wearing my old glasses quite well. I never saw her without them now, and the first thing she did every morning was to put them on. I had asked her a couple of times how her vision was with glasses, and she had simply answered that it was great. One evening I got out the third pair mom had bought me and asked Bailey if she wanted to try them on. She did, and when I asked her if they were better than the pair she was wearing, she told me that she didn’t know. She said maybe they were a little bit better, and while I knew they were stronger I didn’t push her to wear them. I just told her if she wanted to wear them, she was welcome to use them. It is funny, but since Bailey had started wearing my old glasses, whenever she took them off, she complained about how bad her eyes were now. My own eyes were now so bad that I never bothered to take my glasses off, as I really could not see much without them, but I never complained.

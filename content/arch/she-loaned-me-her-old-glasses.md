@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A high school girl discovers her need for glasses and experiences a newfound perspective on life.
 ---
-
 She loaned me, her old glasses.
 
 

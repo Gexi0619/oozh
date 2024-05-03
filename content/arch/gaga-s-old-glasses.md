@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Teenage girl discovers her late great grandmother's glasses, which improve her vision but hold a mysterious secret.
 ---
-
 My great grandmother, who I called Gaga, passed away when I was 14. She had been living at my grandma’s house until she died, and I was sorry to see her pass on. She was a really neat person for an old lady and was very nice to me. We often talked about our nearsightedness because our prescriptions were all fairly high, and she figured that all the ladies in our family, such as grandma, my mom and my 2 younger sisters, had all inherited their myopia from her. I was with my mom the day we went over to grandmas to help her clean out her mother’s room. The bureau drawers were all empty and I was asked to take out the drawers and vacuum behind them. When I got to the bottom drawer there was a pair of quite thick looking silver framed glasses lying on the plywood bottom below where the drawer would have closed. I took them out and went to the bathroom to wash the dust and grime off of them, as no one would have known how long they had been there.
  
 By this time mom and grandma had come back upstairs and I showed them the glasses I had found.

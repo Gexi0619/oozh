@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a time of pandemic, Mandy's forbidden kiss leads to a life-changing consequence. Will she ever recover?
 ---
-
 We, should not have kissed.
 
 

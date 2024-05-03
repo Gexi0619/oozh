@@ -7,11 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A budding romance takes a steamy turn as secrets about Jenna's glasses begin to unravel.
 ---
-
- Jenna was lying across the couch with her head on a pillow on my lap. We were watching a pay per view movie on the big screen television in my apartment and this was the first time we had been together alone – without at least one other couple. We had originally met at a small gathering of mutual friends a few weeks ago, and I had been intrigued by this dark haired large chested long-legged beauty with the ultra thick glasses. Since our first meeting I had been dating her every chance I could get.
+Jenna was lying across the couch with her head on a pillow on my lap. We were watching a pay per view movie on the big screen television in my apartment and this was the first time we had been together alone – without at least one other couple. We had originally met at a small gathering of mutual friends a few weeks ago, and I had been intrigued by this dark haired large chested long-legged beauty with the ultra thick glasses. Since our first meeting I had been dating her every chance I could get.
  
 I glanced down at her head as she lay on the pillow. Thank goodness for the pillow as I am sure that without it, she would have been able to feel my erection. Tonight, Jenna’s hair was pulled back in a ponytail, and I could see the side of the right lens of her glasses. Back when I was born, in the early 90’s, the 13mm thickness of her lens would have indicated a prescription of around -10D, maybe even up to -12D, but with the high index lenses of today - almost 30 years later, her lenses could have been as strong as -25D to show this much edge thickness. I had been very careful over the past 6 weeks to ensure that I said nothing about her eyesight or glasses, and I could only hope that my apparent lack of interest would show her that her glasses and her eyesight were of no concern to me. I knew from past experience that girls who wore glasses, especially glasses that were as strong as Jenna wore, were generally fairly self-conscious about them. 
  

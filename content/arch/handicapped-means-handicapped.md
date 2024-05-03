@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young lady parks in a handicapped spot, leading to a series of events with unexpected consequences.
 ---
-
 The idea, and much of this story was written by my friend Andy. Since Andy is not a native English speaker he often asks me to re write his stories , and while I do attempt to get it - shall I say more English, I sometimes leave the odd phrase that isn't just perfect. For the most part I do make the story very readable in English, but I always like to give Andy the credit where it is due. So, enjoy Andy's latest tale.
 
 The other day I was at the supermarket picking up a few items that we needed. I was walking along on the parking deck near the front entry of the supermarket where I usually do my shopping when I heard a rather loud argument going on between a supermarket employee and a young, quite attractive, female shopper. This young lady, apparently not handicapped, had parked her car in an area marked for handicapped people. This resulted in the loud argument I was hearing between herself and the supermarket employee.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: From high school graduation to moving to Nashville, a teenager navigates vocational training, smoking, and newfound independence.
 ---
-
 This story is fantasy but little tidbits are true. One thing that is not true is I never started smoking but after all this is a fantasy story. Some of this is how I wish things turned out.
 I went to high school in Southern Indiana graduating in 1978. I was not too keen on college so I took some vocational training in high school. I actually graduated a semester early which you could do back then. I don't think it's an option anymore but not sure. My graduation was delayed about a month due to the worst winter this area has ever had to this day.
 After graduation I took a job in my chosen field while taking the last semester of the vocational education at night. That created some problems. I was staying up later then I was used to so I did a couple of things to stay awake. I had to learn to drink coffee which I never liked the taste of. Despite growing up with parents that smoked cigarettes I had never even tried smoking until I turned 18 which was very late back then. Most high schools had student smoking areas and teachers were allowed to smoke in the teachers lounge. A coworker suggested smoking would be one way of helping me stay awake. I only smoked in the designated area at the vocational school and at work and only about 3 or 4 a day. I had gave my parents so much grief about smoking growing up there was no way I was telling them and with them being smokers I had no trouble hiding the smell though they probably wouldn't have cared anyway. I literally had to "learn" to smoke with the help of my coworker. 

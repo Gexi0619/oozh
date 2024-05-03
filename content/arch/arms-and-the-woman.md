@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Private Cook, a soldier in powered armor, unexpectedly awaits Puffin in a Talos cave in this gripping sci-fi tale.
 ---
-
 ----------------------------
 Arms and the Woman 
 ----------------------------

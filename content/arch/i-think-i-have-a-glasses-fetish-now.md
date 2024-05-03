@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Ashley's resistance to wearing glasses is challenged when her friends start wearing them, and Jeff discovers the benefits of glasses in sports.
 ---
-
 You were prescribed glasses, now wear them!!!
 
 We are a sports loving family, my dad coaches our little league team which keeps me [Jeff] and my brother Logan busy during the summer vacation.

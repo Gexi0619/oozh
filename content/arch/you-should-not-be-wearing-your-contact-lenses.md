@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Twin sisters navigate life and love while one embraces glasses and the other sticks to contacts.
 ---
-
 You should not be wearing contact lenses?
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Amber's vision impairment intensifies as she navigates a new relationship and confronts her hidden past.
 ---
-
 Finding ME 2 /6
  I found my reading glasses on the bedside table,
 

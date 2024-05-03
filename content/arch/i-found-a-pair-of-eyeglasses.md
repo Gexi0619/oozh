@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teenager's discovery of a pair of glasses changes his perception of himself and his desire to wear them.
 ---
-
 I found a pair of eyeglasses..........
 
  It is a beautiful sunny day.

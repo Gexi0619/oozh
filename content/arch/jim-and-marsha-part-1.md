@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jim and Marsha, both surprised by needing glasses, embrace the change and look forward to school.
 ---
-
 Jim was a handsome boy, a good student, interested in track and field, sports in general.He would be going back to high school 
 in September.
 Jim was the oldest of 3 children in a happy family. His dad had a good job, so his mother was able to stay home ans raise the family.

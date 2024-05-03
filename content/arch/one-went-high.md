@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter at the grocery store leads to a surprising connection with a glasses-wearing cashier.
 ---
-
 I had gone through Ashley’s cash line at my local grocery store a number of times. Ashely was slim, reasonably tall and had a nice rear end. She was lacking a little in the breast department, but she was still an attractive enough young lady that I was thinking of asking her out on a date.  She was only on cash on Saturdays and Sunday’s so I figured she was likely in her last year of high school and was about 17 or maybe 18.  I had recently celebrated my 20th birthday, so there probably wasn’t too much of an age difference. I was always quite pleasant towards her, and I would like to think from the way her eyes lit up when she saw me approach her register that she might not be too hard to convince to date me.
  
 I popped into the grocery store on a Sunday afternoon to pick up a few items for my supper.  After I left school and apprenticed to a brick and block layer so I could learn a trade I had moved into a small apartment and for the most part I did my own cooking. As I came towards the cash registers I scanned the cash registers to see which one Ashley was working at. I spotted her blond hair hunched over an item that she seemed to be price checking, and when she raised her head I was surprised.  Ashley was wearing glasses. I had never seen her wearing glasses before and that was the nail in her coffin as far as I was concerned.  I love girls who wear glasses, and I think the main reason I had not asked her out yet was because she didn’t wear glasses. As the line brought me closer I could tell that these flat fronted, rather large eye sized black Ray Ban frames held lenses that were no beginner’s lenses. There was quite a bit of lens thickness sticking out behind the frame and I guessed that Ashley had a prescription close to, or slightly above -10D. There are so many different lens options these days that it is really hard to tell a prescription from just looking at it. As I paid for my order I casually mentioned that I liked her glasses, and she gave me a strange look and just said thanks.

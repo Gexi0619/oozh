@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In Part 1 of "The Strabismus Institute," Jack seeks a solution to his vision problems.
 ---
-
 With all the recent discussions about prism, I thought I would try my hand at writing a story that is prism related.  Right now, I think it may 
 wind up being 3 or 4 parts, but a lot depends on your reactions, pro or con. Your comments would be appreciated.
 

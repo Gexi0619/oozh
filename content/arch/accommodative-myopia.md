@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kiran, a graphic designer, bet her myopic friends she could wear Carla's strong glasses, trapping herself in a new reality.
 ---
-
 I was sitting in the communal seating area at our local mall eating area waiting for my current boyfriend to show up, and as I often did, I had removed my strong glasses and was making an effort to clean the lenses. My name is Kiran and I am 22 years old. I have graduated from college and am currently employed as a graphic designer, a job that I really enjoy.
  
 My glasses were not really dirty enough to require cleaning, but when I am in a public place with nothing particular to do, I have found that it is a good way to draw attention to myself. I noticed that people tend to stare at me when I have my glasses off, because they think I can’t tell that they are looking. They are correct. At one time I could tell that people were staring, but after years of wearing my strong minus glasses, I can no longer see much more than a blur of colors without them.

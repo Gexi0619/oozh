@@ -7,10 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Linda's obsession with glasses leads her down a path that ultimately changes her life forever.
+word_count: 1956
 ---
-
 Linda was in her early teens, the middle girl in a myopic family.  Her father and mother has been wearing glasses since they were in public school. Her older brother had been wearing glasses since grade 3, and her younger sister started wearing glasses last year, when they had their yearly eye exam.   Since Linda was in high school now, she was wondering when she would need glasses, she wanted to wear glasses. Wearing glasses seemed to be no problem, she never heard anybody at home complaining about them.
 Most of their relations wore glasses, and she always felt glasses were an important part of a persons appearance, she felt left out not wearing glasses,  and wondered if she could do something about it.  Then she found an article on the computer about induced myopia, the way she understood it was that,when you are young and still growing, and wore a pair of glasses with a myopia prescription, that you might become myopic, it was certainly worth a try.
 It did not take long for her to find an older pair of her brothers glasses in a drawer and took them to her bedroom and tried them on.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Finding ME part 3: A cleaning lady becomes entangled in a web of secrets and deceit."
 ---
-
 Finding ME part 3
 
 

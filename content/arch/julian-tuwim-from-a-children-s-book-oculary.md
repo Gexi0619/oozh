@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In search of his glasses, Mr. Hille becomes increasingly frustrated until a surprising discovery brings joy.
 ---
-
 Julian Tuwim (Poet from Poland) into English:
 
 Where on earth is Mr. Hille yelling, Where, oh where, is my glasses dwelling?

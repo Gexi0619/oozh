@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: 40 years later, a man's high school reunion invitation leads him to hunt down an old crush.
 ---
-
 The invitation came as an attachment to an e mail. My class of ‘78 was having their 40th reunion in June of 2018 and I was asked to RSVP as to whether I would be coming or not. I had opened the attachment and was looking at the 4 pictures that were rather poorly reproduced on the invitation. There was one of Rod Johnson’s 73 Mustang with a couple of guys leaning against it. Then there was a picture of 3 guys and a girl. I was pretty sure that the girl was Kathy Mallory, and one of the guys was Gary Burns, but the other 2 guys were just not recognizable to me. One picture was of the football team playing a game and if I hadn’t known that Sam Longmore was number 27, I wouldn’t have known anyone. The 4th picture was of 2 girls with long blond hair, white t shirts and blue jeans and as my eyes focused for a closer look, I was almost positive the one of the girls in the picture was wearing a pair of what, back in 1977 or 78, would have been considered major coke bottle glasses.
  
 You might ask how I could spot a pair of potentially strong minus glasses in a rather poorly reproduced photo. I would then have to tell you that from the time I had left that one horse town that I grew up in I had spent my time searching for ladies that needed and wore strong glasses. I probably have one of the largest private collections of pictures of girls who wear glasses, and while I have no idea of how many actual pictures I have I do know that I have over 300 individual named girls consisting of between 4 and 100 pictures of each girl as well as almost 400 individual single girls in the myodiscs and over -20 diopter category. I also have 225 individual girls of the same 4 to 100 pictures range of girls whose prescriptions range from -15D up to -20D along with another 350 single pictures of these ladies. I also have a large number of ladies pictures with prescriptions that range from -10D to -15D along with about 500 single pictures of these ladies. So, can I spot a girl wearing glasses with a strong prescription? I would like to think I am pretty much an expert.

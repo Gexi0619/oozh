@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Two lives intertwine in the heart of the South American jungle, leading to a captivating journey of survival and redemption."
 ---
-
 -------------------------
 Jewel of the Jungle
 -------------------------

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A single woman's journey to self-acceptance through thick glasses leads to an unexpected encounter in Southampton.
 ---
-
 If it hadn't been for you guys on Vision and Specs, who have taught me to approach my own poor eyesight with self-esteem and appreciate my strong glasses, perhaps I would still be single today. Only because I knew that some guys fancy a girl in thick glasses and get turned on by a strong prescription, and that there is nothing wrong with that, I was able to react well during a very recent surprise encounter and wasn't caught completely off guard. And because I am grateful for what you guys have made me realize but also because I know that some of you will find the story of how I met Nick - and what this has to do with my glasses - worth reading, I'm going to tell you all about it. Hopefully you'll enjoy it and I didn't miss too many juicy details!
 
 It doesn't happen very often that I have to travel further afield. Particularly during the time of the Covid-related lock-downs there were months where I didn't leave my area. However, last Saturday I had organized a trip down south to Southampton to see my aunt who celebrated her 55th birthday, and who had been all by herself for many months while travel had been restricted. It was overdue that someone from the family went to see her and give her some company. I happily volunteered to do this.

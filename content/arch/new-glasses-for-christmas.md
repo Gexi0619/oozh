@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl helps her friend who can't afford glasses by finding a way to get her a proper prescription.
 ---
-
 New glasses for Christmas .
 
 

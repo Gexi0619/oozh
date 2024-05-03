@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Allison's visit to the optician takes a terrifying turn when she realizes something sinister is happening to her eyes.
 ---
-
 Allison and Rick - The Terrifying Test
 by Specfiend
 (originally posted to EyeScene 28th June 2001 - last part posted 02 July 2001)

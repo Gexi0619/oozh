@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A stranger's act of kindness leads to an unexpected connection in a small mountain town grocery store.
 ---
-
 When I become overwhelmed by my world, and the pressures of life take me close to a point at which I start to lose my sanity, I jump on my Harley and head out of the city for a place in the country, where the panic rush of city life is absent, and everything is pure simplicity.  I have no particular place or area that I ride to, but usually it is a 2- or 3-hour ride.  I like to leave around sunup, and I avoid the Interstates and only ride on paved 2 lane roads.  The roads I like the best are the ones that are winding and narrow with hills.  Sometimes, I ride south into South Carolina, but today I had gone to the west, to the Smokey Mountain area on the Virginia, North Carolina, and Tennessee borders.   
  
 The road was windy enough to be a challenge, and I leaned into every curve, almost touching the pavement with the pegs.  A rusty old speed limit sign loomed ahead of me, and I quickly braked the bike down to the 30-mile/hour limit.  No way was I going to be the prize catch of the day for a local hillbilly sheriff.   A quaint little mountain town loomed in front of me.  The old, stately houses looked to be well kept with lots of trees and neatly mowed lawns.   The town had an air of prosperity that was unusual for this area. As I rode slowly through the town, I found what I was looking for, and was even more surprised to see that it was a small, fairly modern, well-kept major chain, grocery store.  It was getting close to lunchtime, and I often went to the local grocery, to buy some buns, cold cuts, and cheese, as well as a cold can of brew.  Then, I find a place where I can safely leave the Harley, and I have a picnic in the woods, by myself, just the way I like it.

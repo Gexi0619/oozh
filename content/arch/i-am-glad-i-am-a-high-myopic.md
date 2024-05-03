@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: From tragedy to triumph, a young girl navigates loss, responsibility, and newfound opportunity as a glasses-wearing model.
 ---
-
 I am glad, I am a high myopic
 
 

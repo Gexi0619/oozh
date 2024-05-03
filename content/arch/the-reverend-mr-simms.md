@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A gripping tale of a family torn between their faith and the urgent need for medical intervention.
 ---
-
-                                    
 “Mildred, you have to quit listening to Reverend Simms and take Rachel to an eye doctor. There is no way that his hocus pocus sideshow of praying for her eyes to get better will work.” I told my sister.
  
 “But Heather, I can’t just take Rachel to an eye doctor before the prayers have had a chance to work. The Reverend will be angry with me. He says that we must give prayers a chance to do their work because once a person starts wearing glasses their eyes just get worse and worse.” Mildred replied.

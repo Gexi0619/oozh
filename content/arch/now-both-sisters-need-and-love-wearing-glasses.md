@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Linda's unexpected journey from farm to city leads her to discover the transformative power of glasses.
 ---
-
 Now, both sisters need, and love, wearing their glasses.
 
 

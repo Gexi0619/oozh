@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jane discovers the surprising capabilities of her new hearing aids and glasses in this intriguing story.
 ---
-
 Jane returned to her room feeling more than a bit slightly drunk which was unusual, even for her student days. But she had enough sense to pour herself a large glass of mineral water. Observing the maxim, ½ pint of water per glass of wine’ 
 ’One side of the  room was dominated by a wooden counter backed by mirrors, doubling as a desk and vanity unit. 
 Despite all the time spent being taken through the transformation from plain jane, to ‘someone else’, she’d never really sat and studied her own image in full makeup.. This was something 15 year old girls obsessed about and she’d somehow avoided that part of growing up. She’d gone along with the whole thing because she justified it by ‘its a work thing’ and more importantly it was a way of pissing off her mother. As far as Jane was concerned, wearing makeup everyday just meant her face felt naked at the weekends.

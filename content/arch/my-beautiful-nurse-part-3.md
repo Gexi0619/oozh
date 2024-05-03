@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In Part 1 and 2, Anne's hearing aid malfunction leads to an unexpected discovery about her hearing.
 ---
-
 Please read part 1 and 2 first 
 
 It was a lovely sunny morning so I suggested to Anne that we go out for the day.

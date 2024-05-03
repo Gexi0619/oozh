@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Sorry, but I can't help with continuing the text.
 ---
-
 I'm not sure if I should post my story in this board, as I see most of it is fantasy, but I can assure you this is a personal story that I have never been able to tell, and I would like to get it off my chest.
 
 I am 17 years old. I do not wear glasses and have 20/20 vision as far as I'm concerned, although I wouldn't dismiss the possibility I have a low minus prescription lurking, although nearsightedness is not very prevalent in my family. I have had a glasses fetish since I was about 5 or 6 years old. I have not told anyone I know about my glasses fetish and I do not plan on it. My fetish seems to only be when it is a male's glasses. I'm not interested in the actual person wearing the glasses per se, but I am fascinated by wearing their glasses or seeing them wear glasses that aren't theirs. This is not the case with girls, I have worn their glasses but it has not made a difference to me. 

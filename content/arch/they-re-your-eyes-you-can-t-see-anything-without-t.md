@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: David's perfect world shattered when vengeful classmates stole his glasses, leaving him blind and vulnerable.
 ---
-
 [This is before David met Katie]
 
 David had been acing college. At just 18 he was already at the top of a senior-level class. This class, in particular, was a weed-out class for people who wanted to get into a competitive graduate school. The final exam had been taken and he had just busted the curve.

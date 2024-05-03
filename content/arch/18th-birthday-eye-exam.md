@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A high school senior discovers he needs glasses on his 18th birthday, leading to unexpected adventures.
 ---
-
 High school senior Rocky was preparing to celebrate 18th birthday on a Friday in October of 1978. School was out that Thursday and Friday for what we now know as teacher in service days.. Rocky's parents and his Grandmother would be out of town leaving Thursday morning from their southern Indiana home for a music festival in Kentucky so a low key celebration was held ion Wednesday evening. Rocky an only child had ever since he started driving  at 16  stayed home many spring and summer weekends by himself while his parents went to their fishing camp and living in a good neighborhood there was no worries about doing so.
 Rocky worked in fast food back then two or three nights a week and days for Saturday and Sunday with every other weekend off and this was that time. A manager knowing school is out that Thursday calls Rocky and he works that day and then prepares for his three days off before starting work and school again on Monday.
 Rocky a stock car racing fan dreads being bored that weekend as both local tracks are done for the year and the high school basketball season is still a few weeks away from starting. On his birthday Rocky goes to a local mall to play video games.(yes malls used to have arcades) and it's there he wins a contest that includes a free eye exam and a chance to win a $200 gift certificate at the office which makes glasses in one hour. Rocky finds out that the exam is only good for him and just for that day or the next. Rocky who has never suspected any vision problems doesn't think he can get the exam due to being a minor and his parents are out of town but checks anyway and since he turned 18 that day can sign himself in for the exam. Rocky planned to have the exam and if he won the gift certificate and give it to his parents. Rocky's Dad is wearing glasses for reading and his Mom may need them shortly for the same thing.

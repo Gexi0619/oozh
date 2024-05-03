@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jerzy, a former spy with a new identity, falls in love with a musician and faces challenges.
 ---
-
 Late Summer Love
 By Bobby
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Grace Bulstrode, an aspiring Olympic athlete, defies expectations and embraces her glasses in pursuit of her dreams.
 ---
-
 My name is Grace Bulstrode, and I’m 22 years old.  I’m 5 foot 9, and have an athletic build.  I’m hoping to represent Great Britain in the 5000 and / or 10000 metres races at the Olympic Games in 2032.  Many would say that I’ve reached this level in spite of the fact that I wear glasses.  I would argue that I have got to where I am today because I wear glasses.  Judge for yourself.  This is my story.
  
 I was born in late 2009, the younger child of Oliver and Maisie Bulstrode.  I always argued that my parents didn’t have any more children after me because they were never going to beat perfection.  My brother, Matthew, disagreed.  He said they couldn’t cope with the thought of having any more children like me.  We had our arguments as children, like all siblings do, but we got on quite well in general.  Oh, and to each other, and to our friends, we’re Gracie and Matt; only our parents still call us Grace and Matthew.

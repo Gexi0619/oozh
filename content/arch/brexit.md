@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In post-Brexit UK, shortages and delays cause chaos, but a discovery in an old warehouse may provide a solution.
 ---
-
 Brexit 
 
 It is now three months since the UK had left the EU.

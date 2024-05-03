@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: The fire lookout's unexpected journey to remote wilderness uncovers more than just forest fires.
 ---
-
 The look out.
 
 

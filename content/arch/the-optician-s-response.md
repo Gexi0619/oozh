@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A reader discusses the accuracy of stories about high myopes and shares their own experiences as an optician.
 ---
-
 A few years ago I received an e-mail that I found to have some interesting information, and observations about my stories.  I wrote a reply, and kept the e mail and my reply on my hard drive, with the intention of trying to make it into a story.  But to do this I would have had to make it longer, and in doing this I would have changed it from a true story to an almost true story.  In the end I have decided that Vision and Specs is a perfect venue for this true tale. 
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a world of class distinctions, Margaret's life changes when she discovers the power of glasses.
 ---
-
 This is a story that will give a lot of readers some insight of how life was in the early 20 th century.
 I made up the story about a few facts that I know, and what I was told, the rest is all fantasy.
 I was born in 1927, and when growing up realized, that there was a certain amount of class distinction, 

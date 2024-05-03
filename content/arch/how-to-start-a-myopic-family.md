@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Megan, a glasses-wearing fashion enthusiast, discovers the beauty of glasses and embraces her own unique style.
 ---
-
 Mrs. Kelley, a glasses wearing young mother was very surprised , when he 4 year old daughter Megan was walking around the house with a brown hand towel over her head , and telling her she now had long hair that she wanted.
 Well a year later , Megan had shoulder length hair, and was very proud of tit .
 She spend a lot of time brushing and combing it and always liked to look her best.she loved nice hair.

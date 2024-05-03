@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A couple moves to a remote rural area, facing isolation and challenges while caring for an ill family member.
 ---
-
-                                            
 My husband and I moved from the city after we were married back to the area where I had grown up. It was about as far removed from civilization as one could live, and still be close enough to the modern world so that one could drive for a couple of hours and be at a major shopping mall. Even the amenities were not what one was used to if they had lived all their life in the cities. Septic tanks had to be pumped out every few years. As well electricity might be out for hours, and water came from wells that sometimes had temperamental pumps. I was sort of used to the rural back woods life, but my husband, who had claimed to love the thoughts of being a country boy, was appalled at the stark isolation and the ruralness of it all.
  
 My mama was dying, and my little sister, who had been looking after her, was very pregnant, so Danny had agreed to move back here with me – just until we could get mama buried - I promised.  Mama had done all her cancer treatments, and was in a bit of remission at the moment, but she was so weak that Lynette, in her final weeks of pregnancy, couldn’t manage lifting her from her bed to the chair. Daddy had been gone for about 10 years now, and Mama was ready to go, but sort of wanted to hang around long enough to see her first grandchild born.

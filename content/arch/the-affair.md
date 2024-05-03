@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An introspective man reflects on his regrets, including a secret affair, and uncovers surprising lessons about love.
 ---
-
 As I approached my 50th birthday I would sometimes reflect on my life as I had lived it.  There were a couple of things I had done that I was not proud of and I would have liked to have had the chance to be able to do over a few things, but of course that is not an option.  My wife had passed earlier in the year from a very rapidly advancing form of cancer and if I had known she was not going to outlive me I would have treated her with more respect and would have spent more time with her while she was alive. She was very forgiving and I had been by her side through every step of her cancer treatment and was with her when she died so I felt she knew I loved her deeply before she passed.  But I still would have done a few things differently.  The one thing I had done that I could not tell her about, and which I often wished I had not done was that I had a short lived affair with my secretary soon after our two children were born. I could never have told her about this affair, and although I wished it had never happened I eventually discovered that this affair was something that turned out to be one of the best things I had happen to me in my life. 
  
 You might wonder how an affair between two married people could turn out to be one of the best things that I had ever done, especially when I was assuaged with guilt for many years.  I will have to tell you a bit more of the story, and hope that you will then have a better understanding of this affair.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A lifelong fascination with glasses leads to surprising connections, love, and an enduring passion for eyewear.
 ---
-
 Ever since I was a little boy ,I have been facinated with eyeglasses. Nobody in our family needed them. my grand parents
 wore them and one uncle.It did not matter or a boy or a girl wore them I  envied them .
 My mother got reading glasses, but only wore them at night. She kept them in the dining room buffet drawer. I loved to

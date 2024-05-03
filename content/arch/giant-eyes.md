@@ -7,15 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When we presented the eye-rings to the village elders, they were astonished. They had never seen anything like them before. They warned us to never wear them again. But I knew the truth, and I couldn't forget the strange and unsettling experiences we had with those eye-rings.
 ---
-
-Giant Eyes
-
-
-
-
 
 Gather round, child, and let me tell you the tale of a great and terrible time for our tribe. When we were younger we liked to explore the ruins of the ancient giants, just like you do now. Among their collapsed stone towers, we found countless useless baubles and trinkets, just like everyone else. But sometimes, we would hit a treasure trove and find the prized ancient artefacts that all children dream of discovering. One time, we found a perfectly rectangular sheet of black plastic that we recognized to be an artefact of the giants from its perfect, alien-like geometrical precision. In awe, we started to fiddle with it when all of a sudden, the surface of the object began glowing, illuminating us with a brilliant but faint white light, with nothing but a strange not quite circular symbol in the middle. Transfixed by this sight, we didn’t move until the white light stopped, shifting instead to reveal an intricate pattern of darker symbols now. I swear upon my elders, Ross touched it then and the lights moved, as if reacting to him. Will wanted to keep playing with it to unlock its secrets, but Ross and Elsa were scared, preferring instead to bring it back to the elders as soon as possible rather than to play with a potentially dangerous artefact. I sided with the two of them, to Will’s obvious anger, and so we ran back as fast as we could to the village. But it was too late. It had reverted to its original, mundane black shape, never to glow again. I’ve kept that black sheet, and over the years, I’ve begun to wonder whether or not the glow was just a trick of the light – merely an illusion we collectively imagined in our youth.
 

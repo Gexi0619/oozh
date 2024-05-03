@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Twins testing experimental injections discover the shocking side effects, leading to a confrontation with their angry parents.
 ---
-
 I Was 20 years old when this story started.
 My twin sister Mary and I will be starting our third year at university after the summer break.
 Our parents aren't rich so we have to fund our own way through uni.We have done shop work and and worked in cafes and bars to earn money but in our 2nd year we signed up to test medical products,first was for allergies then last winter for different flu injections as we are twins we are sent to different labourites and I think we received different injections

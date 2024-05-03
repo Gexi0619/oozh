@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In California, a young woman named Amanda captures the attention of a dolphin lover during an unforgettable visit.
 ---
-
 -------------------
 Dolphin Dance
 -------------------

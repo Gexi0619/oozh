@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: He left. I haven't seen anyone like that," he replied, a sinking feeling in his stomach.
 ---
-
 No glasses discussion board should be without this classic story, the one that got me going.
 
 Four-Eyed Angel

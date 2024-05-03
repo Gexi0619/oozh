@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Tracy, a 6-year-old girl, becomes obsessed with glasses after trying on her friend's pair, leading to life-changing consequences.
 ---
-
 **Long time reader. First time posting. Constructive feedback is appreciated** 
 
 My name is Tracy, and I’m 6 years old. I’ve wanted to wear glasses for as long as I can remember. I’ve always been intrigued by them, and loved how they made people look when they’re wearing them. Neither of my parents, or my older brother wear glasses so I figured I may never need them. 

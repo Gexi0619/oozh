@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl discovers the beauty of eyes behind glasses, leading her on a journey to embrace her own.
 ---
-
 It all started, when my favorite toy, Teddy Bear lost one of his nice blue eyes.
 I had always loved to look at those nice blue eyes.
 My mother realizing how unhappy I was,  took me to a craft store to find an eye to replace the lost one.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Desperate for a job, a woman fakes her need for glasses, only to uncover a sinister truth.
 ---
-
 I used the word MY for the first time 
 
 

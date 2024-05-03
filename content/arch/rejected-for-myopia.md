@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Childhood friends Laurie and the narrator grow apart, but reconnect later in high school with surprising revelations.
 ---
-
 Laurie Coburn and I were only 6 months apart in age, and were in the same grade from kindergarten all through high school.   
 
 Because Laurie lived in my neighborhood I hung around with Laurie, both at school and after school, and was friends with her during the first few years of our time in school together. As Laurie reached the age of puberty she no longer wanted to play with boys, and by then it wasn’t cool to have a girl as a close friend. So Laurie and I drifted apart by around 5th grade.

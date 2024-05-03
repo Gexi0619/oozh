@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Witness the journey of a young boy with high myopia as he navigates the challenges of daily life without clear vision.
 ---
-
 I have a friend with pretty high myopia, so I’d like to share his journey. He potentially has a + double digits future.
 
 It all started in 2020. The pandemic came and everybody just stayed at home, so obviously electronic usage went up and a lot of people developed myopia. Jason (fake name) was then around 10. 

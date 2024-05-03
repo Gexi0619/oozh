@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: From an unexpected encounter to a kind gesture, a man's perspective on glasses becomes a game-changer.
 ---
-
 Was it Bad Luck, or Good Luck?
 
 I crested the hill on my way into town and saw a younger looking lady walk on to the road from a driveway ahead of me and turn towards the village.  She started to walk briskly, and I thought it likely she was only walking for exercise.  I pulled up beside her and rolled down my window.

@@ -7,10 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter at a department store leads to an accident that changes one person's Christmas Eve.
+word_count: 3518
 ---
-
 -----------------------  
 A Christmas Carol  
 ----------------------- 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Stephanie, a 19-year-old pharmacy student, longs to be defined by more than just the glasses she wears.
 ---
-
 I’m getting my eyes tested next week, and I’m going to ask for contact lenses.  I know I need new glasses – I always do; every six months or so, for the last ten years.  I don’t mind my glasses; I need them to see.  However, I don’t like being defined by them.
  
 My name is Stephanie Flowers.  I wear glasses.  I’m 19 years old, and currently in the first year of a 3 year pharmacy degree.  I wear glasses.   I’m five foot four, have medium-length brown hair, and glasses.  I’m probably slightly overweight, but I’m more than happy with my 34E boobs.  I wear glasses.

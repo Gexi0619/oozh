@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "The Derry Incident, 1949: A small town, a dark secret, an unraveling marriage. Will truth prevail?"
 ---
-
 The Derry Incident, 1949
 
 Foreword: The events depicted in this story are true. They occurred in the small town of Derry in New York State in 1949. In my work as a historian of the area, I have pieced this story together through contemporaneous diaries, police reports and newspaper articles. Some names have been changed. Little else has been touched.

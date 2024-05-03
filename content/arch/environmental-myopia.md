@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A writer's encounters with a real-life story that pushes the boundaries of induced myopia and high prescriptions.
 ---
-
 For a number of years you have likely been reading stories I have written about people who wear glasses.  Over the years I have stretched the realms of possibilities as far as induced myopia can go, leading the person who had the myopia induced to have very high, and potentially unrealistic prescriptions. Many of my tales start off with some elements of truth, but soon I find I get carried away and go a little overboard – no, make that a lot overboard. In actual fact, induced myopia is entirely possible – if you start with a child of age 5 or 6 and carry it through until they are not much older than 22. In telling stories about women who have had increases in their myopia during the time they are pregnant I have also stretched this beyond reasonable doubt.  In one case I have actually known of one lady who had her prescription increase from -11D up to -20D during pregnancy, but the chance of this happening is so rare it is almost an impossibility.  Yes, it is known that childbirth will slightly increase a woman’s myopia, but normally by only -1 or -2D.  And for those people who are unfortunate enough to actually experience rapidly increasing myopia during their teenage years, the outcome is not always good. Retinal detachments, very poor visual acuity, and many other problems are associated with very high myopia and that is why it is generally called degenerative progressive myopia.  But in the fantasy world of my stories, none of this happens and the heroine ends up with a very high prescription and no problems.
 
 Sometimes I come across a story that is almost unbelievable, but really is the truth.  It is the story that my stories are made of, with one difference – it has happened in real life.  Such is the following tale.

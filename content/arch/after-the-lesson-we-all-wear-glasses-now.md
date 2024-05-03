@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Neighbors discover the importance of vision after their children's teacher educates them on the topic.
 ---
-
 After the lesson, we all wear glasses now.
 
 My husband Jim and I,[ Nancy], and our son Matthew and daughter Kelley, just moved into a new house.

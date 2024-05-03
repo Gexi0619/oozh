@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A young boy's journey with vision problems leads him to discover the power of contact lenses."
 ---
-
 I'm Simon. I am 19 years old and am the youngest of 3 kids in my family. Both my parents and sisters wear glasses so it was no suprise when I started 4th grade and struggled to read the board. I was prescrubed glasses with a prescription of -0.75 in both eyes with a little bit of astgnatism. I only wore that pair of glasses when I needed to see the board at school or when I went to the movies. I managed to watch TV without them at home by just sitting closer to the screen. The occasional glasses wearing was shortlived, becuase in 5th grade my prescription increased to the point where the doctor reccomended I wear them full time so I would never be in a situation where I needed to see but didn't have them. My prescription was -1.25 now, with -0.75 of astigmatism in both eyes, up from the -0.25 the year before.
 
 In 5th grade I had also started playing club basketball and was actually fairly good despite playing without glasses. Since I had always found those sports-goggles ugly, I opted not to wear any correction on the court. I would take my glasses off and put them in my bag in the lockerroom before practice so my coach didn't even know I had bad eyesight. I played very well for the first few months, but about half-way through the year my performance started to drop. I was having trouble making baskets and sometimes I would pass the ball to the other team by mistake. At a certain point, my coach asked me what was going on. I told him i didn't know. He spoke to my mom who put together that my eyes might have gotten worse and a visit to the eye doctor was in order.

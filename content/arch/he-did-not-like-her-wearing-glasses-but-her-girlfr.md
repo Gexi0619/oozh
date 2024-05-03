@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A girl discovers the world through glasses, finding clarity and newfound confidence in her new look."
 ---
-
 He did not like her wearing glasses, but her girlfriend  does. 
 
 I am Carolyn, I have an older sister Ashley, and my best friend is Kim

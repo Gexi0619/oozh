@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl becomes obsessed with wearing glasses like her friends, leading to a secret scheme.
 ---
-
 Before my baby brother was born when I was almost 3 my mom used to take me to play school. I looked forward to going there twice a week because there were other kids to play with, and lots of different toys that I didn’t have at home. After Shaun was born I had to miss out on playschool for a while, but then my gramma started to take me to help my mom out and I was really happy that gramma was taking me.  There were 2 other girls that went to playschool that I liked to play with.  Camila was older than me by a couple of months and Sarah was almost a whole year older than me.  Sarah wouldn’t play with me at first because she had other girls that were a bit older than she was to play with, however her birthday was in January which made her just young enough that the other girls went to kindergarten in September and left her behind. But now that I was 3 and Sarah was almost 4, I suppose I had matured enough that she, along with Mila became my friends.
  
 Sarah wore glasses. I don’t remember if she had always worn them for as long as I had known her, or if she got them before I knew who she was, but by the time we became close friends she wore them all the time.  I was fascinated by Sarah’s glasses because my mom and dad also wore glasses and my mom had told me one time when I asked that since they both needed glasses I would probably end up wearing glasses as well. I had asked Sarah to let me try her glasses on a few times and she always let me. I was surprised that I could see quite well with Sarah’s glasses on and I asked Sarah why she wore them. She told me that when she didn’t have them on things that were on the other side of the room were really fuzzy but when she had her glasses on everything was clear. I didn’t understand that because without her glasses on I could see the other side of the room as well as I could with her glasses on. I liked the feeling of wearing Sarah’s glasses and I was pretty happy thinking that the day would come when I would have to wear glasses.

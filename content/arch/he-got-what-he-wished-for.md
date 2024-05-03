@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Brandon, a new optometrist, discovers a small town in need of an optical practice and possibly love.
 ---
-
 Brandon graduated from university , he is now a doctor of optometry.
 He likes wearing his - 3.25 glasses , and also likes doing G O C , which his girlfriend did not like , so she dumped him.
 Now the most important thing he has to do is open his own optical practice , and finding a glasses loving girlfriend.

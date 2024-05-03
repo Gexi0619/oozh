@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Ashley, a country girl, moves to the city with her aunt and discovers the world of glasses.
 ---
-
 I am, an optician now.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the captivating journey of an 18-year-old grappling with his unconventional glasses fetish and impending need for vision correction.
 ---
-
 Hello everyone, my name is Henry and I'm 18 and I just want to share my own story so hopefully it can be seen by some people who can relate to me.
 
 I think it all started when one of my best friend and her sister got glasses when I was around 10. I was a bit shocked to learn that my friend now had to have this plastic piece of clothing on his face during the day. I was hoping that maybe the doctor made a mistake or maybe he'll grow them out, anyways he wore contacts most of the time.

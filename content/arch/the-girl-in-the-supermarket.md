@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter at the grocery store leads to an unexpected act of kindness and a connection.
 ---
-
 I had just moved into a two-bedroom apartment within easy driving distance of my new job, so after arranging the furniture and setting up my bed I needed to go to the grocery store for some food to fill the fridge. Oh, I wasn’t going to become a gourmet cook overnight, but I could open a can of beef ravioli and pork and beans with the best of them. And hamburger is easy enough to fry up. Boil some potatoes and throw in some frozen peas just before the hamburger is done and you have a decent enough meal. And of course, I needed some sandwich meat as well as some condiments, bread and bacon and eggs.
  
 I was walking down the first aisle when I saw a young lady pushing a cart with a baby in it coming towards me. She looked pretty cute and was probably around my age. But when I looked at the baby a little closer, I almost gasped in surprise. The baby wore glasses. They were a pink pair of those rather ugly shapeless bendable kids’ glasses that are held on with a strap behind the head and even with the tiny lens openings in the frames I could tell that there was quite a strong prescription in them as the fronts were dead flat. I would have rather seen the same prescription on the mother, but all I could hope for was that she was wearing contact lenses.

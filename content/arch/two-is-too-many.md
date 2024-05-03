@@ -7,14 +7,12 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Celia, a receptionist with a strange fetish, pretends to have lost her eye in a bar to manipulate men.
 ---
-
 ----------------------
 Two is Too Many
 ----------------------
- 
+
 1. When Saturday Comes
 
 Celia was a lovely, tall, slim, bubbly, confident woman of 28 years who worked at a local hotel as a receptionist. She usually wore fascinatingly thick glasses to correct her minus 8 myopia, well that's of course if she wanted to see clearly: silver metal roundish frames with lenses sticking out behind, she carried them well and was generally good at her job, and well respected for her efforts therein.

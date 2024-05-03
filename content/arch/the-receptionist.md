@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When Shelley realizes she needs glasses, she must navigate the challenges of her appearance-obsessed workplace.
 ---
-
 In this story we are bringing back Jim and Marsha , The owners of Jones Optical
 { see stories of Jim and Marsha 1,2,3]
 

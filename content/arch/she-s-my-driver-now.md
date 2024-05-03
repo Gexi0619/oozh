@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A former classmate's thick glasses, a lost friendship, and an unexpected reunion years later.
 ---
-
 I met Laura Anne Parks the first day I was in grade 9. We were both 14 and since my last name – Phillips, also started with a P we were seated together. Laura wasn’t bad looking for a girl, but her glasses – her glasses were so friggin thick I couldn’t imagine how she could possibly see anything wearing them. I have, since I have gotten older,  read about jam jar glasses, and bottle bottom glasses, glasses with lenses like ashtrays, and ice cube lensed glasses being used to describe really thick lenses in a person’s glasses, but none of these descriptions really seemed to suit Laura’s lenses. They were simply the thickest lenses that I could ever imagine a person could possibly see through.
  
 I figured our teacher would move Laura to the very front row, but she just asked her if she needed to be closer to the front of the room and when Laura told her she could see just fine from where she was our teacher left Laura sitting next to me. Over the next few months I found that Laura, despite her horribly thick glasses, was a very nice person and she did not deserve the bits of nastiness that she received from some of the other kids about her obvious visual impairment. I was probably the closest friend that Laura had, but I was, like Laura, only 14 years old and being a guy I just wasn’t into girls yet. I suppose if I had been into girls Laura would have been the last person I would have picked to be my girlfriend because of the super strong and thick glasses. However as a classmate and a person Laura was really great to have as a friend.  The glasses, of course, made her different and made her stand out as different so her circle of friends was very small and I was perhaps her only real friend that year.

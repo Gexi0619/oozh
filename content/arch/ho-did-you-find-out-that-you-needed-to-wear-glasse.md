@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl discovers the world of glasses and finds confidence in her new look.
 ---
-
 How, did you find out, that you needed to wear glasses?
 
 

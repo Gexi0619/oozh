@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kirsten stumbles upon her fiance's secret glasses collection, leading to a surprising revelation about his obsession.
 ---
-
 She found my glasses collection #2  (Kirsten)
 
 Writing prompt 1

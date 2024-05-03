@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Oceanographer Charlotte McCartney longs for the sea as she struggles through the grayness of city life.
 ---
-
 Mermaid Eyes
 
 Another prolonged stop in the middle of a darkened tunnel added to the torment of the daily grind on the underground.  Charlotte always felt weighed down and hemmed in when she was in the city.  It was the wide open spaces of the ocean where Charlotte McCartney felt most at home.  

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A mother reflects on her daughter's first pair of glasses and her own journey with vision correction.
 ---
-
 “How old were you when you first got glasses, Mummy?” Emily asked as we made our way back towards the car.  We had just been in to see the optician to pick up her first pair of glasses.  At -1.00, they were not particularly strong, but as she was only five years-old, I knew full well that they were going to be the first pair of many.  I thought carefully for a moment or two, trying to remember where I was when I got my first pair.
  
 “Six or seven.  I was still at Primary School and I was in Miss Mandy’s class.  We had a nurse come into school and do all sorts of tests on us and after the eye test I was taken to get my first glasses.”

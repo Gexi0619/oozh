@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A 14-year-old girl, ostracized for her thick glasses, becomes a pioneering female scientist in the NASA space program.
 ---
-
- 
 When I was working as a cameraman in Hollywood a couple of years back we were filming a story about a 14-year-old girl, the youngest in a family of 4 children, who wore thick glasses and if you can believe it she was ostracized by her classmates because of the strong glasses she wore. The young girl went on to become one of the first female scientists in the NASA space program, although she was pretty much an unknown person to the general public. The beginning of the story took place back in the mid-50’s and the young girl who was playing the part of April Carstairs was a 13-year-old girl named Shelly Blackwell. This was the first part Shelly had ever gotten in a movie and I felt she was a nice kid. I had no idea how good an actress she was, or even if she might possibly have star power.
  
 I think the glasses that the director had found for the girl in the movie to wear might have been one of the pairs that Hitchcock had intended to use for Marion in his film “Strangers on a Train”. They were a pair of silver framed glasses right out of the 50’s and they had very thick lenses in them, even thicker than the glasses that Hitchcock had used for Marion. Shelly made a darned cute April, and since I happen to be a lover of girls who wear glasses I was quite taken with “April.”

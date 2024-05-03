@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Reluctant teenager Sarah is forced to get her eyes tested, only to discover she needs glasses.
 ---
-
 This story is fiction. 
 
 Great I thought to myself. Mum why are you making me do this I complained. Sarah your little brother failed his vision test at school and needs to get glasses. However, you’re always complaining about being tired after reading and headaches so I figured I would bring you in as well. But why my vision is fine I complained plus I’m 15 now I can decide for myself. No, you’re getting your eyes tested maybe if you get glasses, it might improve your crap grades and teach you for the way you treated your cousin when you were younger. Mum I was F..king 8, yea well you used to always tease her and it got so bad that your Aunt and my sister still hates me. She still won’t come for Thanksgiving. We got in the car and drove to the mall, I spent the trip texting my Bf John, why can’t you come to the game babe he asked. My B..ch of a mum making me get my eyes tested I replied. Babe I hope you don’t get glasses I don’t want to be seeing some nerd lol. Lol I Replied besides if I got glasses, they would only be for reading and crap. Yea well I hope you dont get them ahahaha 

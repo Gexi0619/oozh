@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A myopic woman navigates her life with thick glasses, facing challenges as she visits her family.
 ---
-
 Here is another new story by me:
 
 

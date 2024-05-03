@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a desperate attempt to hide his poor vision, President Trump must make a choice, wear glasses or risk it all.
 ---
-
 I decided to write a story on chatgpt. I cleaned it up a bit. 
 
 Donald Trump had always been proud of his appearance, and his image was carefully curated to project an image of wealth, power, and success. However, what most people didn't know was that he had a secret - poor eyesight. Despite this, he refused to wear glasses in public, afraid of how it might affect the carefully constructed persona he had created for himself.

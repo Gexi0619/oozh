@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Part 2 of "Plain Jane No More" follows Jane's journey as she embraces her longing for glasses and finds her own style.
 ---
-
 Please make sure you read "Plain Jane No More - Part 1 - The Journey Begins", before reading this.
 
 Jane woke up the following morning straight out of a dream. She could remember every vivid detail. In the dream, she was totally dependant on her glasses. She could see nothing near or far without them, and she was terrified she would lose them. Her heart was pounding - this was what she so wanted in her life. She couldn't explain it, and didn't want to - she just wanted it to come true. She'd never had such strong feelings before, and could only think that getting her new glasses and wearing them all the previous evening had triggered this longing which had lain dormant inside her. She always knew she wanted to wear glasses, but this extreme feeling was alarming to her, and strangely exciting. She decided she would do her utmost to make her dream come true.

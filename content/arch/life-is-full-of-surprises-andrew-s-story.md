@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Andrew's life takes a turn when his girlfriend's boss tries to change her appearance. Will their relationship survive?
 ---
-
 The following story was sent to me from Eye4you (Michael). I am  only posting it,
      Val
 

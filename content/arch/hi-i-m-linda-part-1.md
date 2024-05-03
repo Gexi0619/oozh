@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A myopic girl with a lazy eye seeks solace online, connecting with a kindred spirit who understands her struggle.
 ---
-
 Posted by Linda, Mon Feb 9, 2015 9:15 pm
 Hi anyone - I'm Linda. I just thought I’d post this ‘cos I’m feeling down. Anyone out there?
 I’ve had a hell of a weekend. Why me? It’s at times like this, lying alone on my bed that I think these thoughts. Why was I born with crappy eyesight? I guess the law of averages says that every so often, someone has to be. I just happened to be there when the world was due for a myopic girl with a lazy eye in my neck of the woods. Honestly, the dear Lord wasn’t content with creating a girl with myopia, He had to also give me an eye that just wouldn’t follow the lead of its partner. Now, that really sucks! Can anyone cheer me up?

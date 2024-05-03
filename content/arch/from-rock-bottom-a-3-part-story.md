@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: David, a chronically unemployed man, seeks help from a stranger after breaking his only pair of glasses.
 ---
-
 Part 1:
 
 The intense blue of the sky was the first thing David saw when he opened his eyes and peeked out of the tent. He couldn’t even see a cloud, but that didn’t mean that there weren’t some wispy ones floating around up there. He squinted his eyes partially closed and tried focusing to see if he could make out any, but to no avail.  He needed those 2 little plastic lenses that were now in his pants pocket to be in front of his very nearsighted eyes in order for him to see anything.  On Friday, those 2 thick little lenses were in a nice plastic frame that he had worn daily since he got the glasses new, back when he was 21. And it wasn’t like he hadn’t known that this might happen someday.  He had broken his glasses once before back in high school and he had been forced to go for a whole week without glasses. But that was when he was still young enough that the state bought him a new pair.  The days of that happening were long gone.  He had aged out from foster care when he was 18 and then had been fortunate enough to find a job in a factory making parts for other companies that eventually went into cars, and washing machines and refrigerators and who knew what else.  But gradually the factories that his company made things for moved their production to other, lower labor cost countries, and by the time David was 25 he was out of work.  The unemployment benefits lasted for a while, but eventually they ran out and David became one of the chronically unemployed at age 27. It didn’t help David to realize that he wasn’t the only person that this had ever happened to.  The knowledge didn’t put food in his grumbling belly, nor did it put a roof over his head.  He was just fortunate enough that he still had a lightweight one person tent and a good, warm bedroll.

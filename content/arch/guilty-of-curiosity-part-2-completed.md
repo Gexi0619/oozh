@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When Katie becomes infatuated with a new guy, she must compete with her friend for his attention.
 ---
-
 This is my first story. It is purely fictional unfortunately. I hope you enjoy reading it and would appreciate any feedback as I'm not a native English speaker. 
 
 Guilty of Curiosity 

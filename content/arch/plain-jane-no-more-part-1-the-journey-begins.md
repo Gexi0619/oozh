@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jane, a plain teenager seeking acceptance, takes matters into her own hands by buying fake glasses.
 ---
-
 Jane Julia Holden was 14. She was a happy normal teenager, and enjoyed all of the things a girl of her age should be interested in. She was good at school and about to enter her third year at high school, showing good promise with excellent results in all of her subjects. She loved music and followed all of the current music trends, sometimes buying CDs when she could afford them, but mostly downloading the latest songs by her favourite groups to put on her MP3 player. Jane was also developing nicely, with a shapely, well-proportioned figure blossoming out as the months progressed. One Saturday, her mother took her for her first bra to the local mall and she got a professional fitting in the lingerie department of the large store there. After the purchase, her mother wanted to go and look at some household goods she needed. Jane wasn’t interested, so she arranged to meet her mum in half an hour at the Costa coffee shop in the mall. Her mum knew she liked to browse the costume jewellery display, but Jane had plans of her own.
 
 At school, Jane was always thought of as the “plain Jane” of the class. Adverse comments from the other girls, and hurtful remarks from some of the boys had really started to get to her, and she began to believe that she really was ugly. She always wore non-descript plain clothes bought for her by her mother which did her no favours at all. She had a pale, porcelain-like complexion and long mousey brown hair in no particular style. She was more interested in her studies, but could feel another interest arise in her lately – boys. Something else had been nagging at Jane over the years. All of her life she dearly wanted to wear glasses like her mum. She would justify this longing by telling herself she was plain anyway and no boy would ever want someone like her, so she might as well be wearing glasses. The only trouble was that her eyesight was perfect. She could spot a fly on the wall at 50 feet away. She had already decided she was going to embark on the adventure of her life, and now was her golden opportunity.

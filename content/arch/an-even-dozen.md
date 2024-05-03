@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A sporadic lottery player gets the surprise of a lifetime, becoming a multimillionaire and chasing a rare fascination.
 ---
-
-                               
 When I was in my late 40’s I was a bit of a dreamer and would occasionally buy a lottery ticket so that I could fantasize over what I would do if I won the big jackpot.  The trouble with that is that in the long run I usually discovered that I had just thrown away a dollar – actually two bucks if I bought the extra.  But for two dollars I could spend a few days dreaming of what I would do with the money, so I suppose it was worth it. The biggest problem with being such a sporadic lottery player was that I never got into the routine of checking my tickets after the draw, and the tickets would pile up in my wallet until I was tired of sitting on a wallet that was full of useless paper and I would then go online to check the numbers of the past draws just before I threw out all those wasted dollars.
  
 Five tickets down, and I hadn’t even won a free ticket.  I took the 6th ticket, checked to make sure the date of the draw was the same as the ticket, and I started to read off the numbers. The first number was a 4, the same as the one on my ticket. Then 15 followed the 4 and that is what my ticket said. My heart started pounding as the next number on my ticket, a 27 matched the number shown on the computer.  I stared in disbelief as I read off the remaining 3 numbers. They all matched, and when I checked the bonus number my bonus number matched the one on the computer screen.  I had a winner. I was now a multi-millionaire.

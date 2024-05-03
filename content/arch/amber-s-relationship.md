@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Amber wakes up in a strange bed, reminiscing about the man she spent the night with.
 ---
-
-                                              
 She woke slowly from a deep sleep and could tell without opening her eyes that she was in a strange bed. The pillows were soft and fluffy, and the duvet that covered her naked body was so light and smooth against her skin that she felt it had to be a down filled one in a silk cover.  She tried to open her eyes and immediately knew that she had been very drunk when she went to bed last night. Her contact lenses were almost glued to her eyeballs as they did not slide smoothly across her corneas. She blinked a few times to try to lubricate them with her tears. Finally she could feel them start to move when she blinked, but her vision was still blurred. Even though she tried to be careful to not let this happen it had happened to her before, and she knew it would take a few more minutes and a lot more blinks before her lenses felt halfway comfortable. An application of artificial tears would help, but she had to get back home to do that.
  
 She knew she was alone in the bed and she could hear water running in what she figured had to be the shower in the bathroom. “I wonder what he looks like?” she asked herself. “He must be pretty good looking,” Amber thought. She never went home with a guy on the first date, and for this to have happened he had to be someone special. Finally the bathroom door opened and Amber could get a good look at the guy she had spent the night with. He was extremely good looking. Tall, with a beard and slicked back hair that was not too long.  She looked at his thin, muscular body, concentrating heavily on what he had between his legs. “Wow,” she thought “this one is really hung.”

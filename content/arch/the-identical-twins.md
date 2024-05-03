@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An engaging tale of identical twins, glasses, and unexpected love interests. Will Amy embrace her potential myopia?
 ---
-
 The IdenticalTwins
 
 

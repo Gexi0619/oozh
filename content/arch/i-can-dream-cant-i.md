@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Follow Emily's journey of embracing her glasses and the impact they have on her life."
 ---
-
 I can dream, can’t I ?
 
 

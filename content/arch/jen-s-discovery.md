@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: As they walked back to the jewelry design class together, Kate couldn't help but feel a mixture of excitement and a tinge of apprehension. She never thought she would be the one wearing glasses, but now it seemed like a new chapter was about to unfold. Little did she know that her glasses would not only improve her eyesight but would also become a symbol of her unique style and perspective.
 ---
-
 Hi All, this is my first ever glasses story... It's a working progress and I invite you to join writing sections of it... I have written the first two scenes. I invite you all to write 3rd scene onwards... Let's see how each of us can illustrate our imagination all starting from a common seed... (pardon me about poor grammar/ punctuation/ capitalisation etc, I was more focused on starting to write, as a person who avoids writing all the time).
 
 Here you go:

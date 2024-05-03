@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter leads to a deep connection as Helga shares her heartbreaking story with a hitchhiker.
 ---
-
 1974 I was on my way hitchhiking to the south, heading for Italy. Standing beside the road at a resthouse in northern Germany in the early morning light I was waiting since 20 minutes, with not so many cars passing by. The big Mercedes aproached slowly, the lady inside mustered me carefuly and stopped. Without opening the door she took a closer look at me. I thought, that she was not the kind of person that takes hikers aboard, but was hopeful she might give me a ride. She opened the window and asked me where I was heading for.  I told her and she said after short hesitation: ok come in and opened the door. .
 The first ten minutes were kind of uneasy, we didn’t get into communicating. But when I asked her, where she came from and what was the purpose of her travelling, she started to explain. 
 15 years ago her sister died and in big grief she happened to get married to her sisters fiance, He was a real big shot and they lived in a big house ashore a lake in southgermany until he died last week on a business travell suffering a stroke. They had no kids and no close relatives nearby and that was why she now was all on her own. Asking more I found out that the marriage she lead was more or less a fake, because her husband was a secret gay, that needed her as a partner to pretend straightness. Now she was about to inherit all his belongings and was very unsure what to do next.  Telling this she started to cry and had to stop the car beside the motorway. I did my best to be an understanding person. The next resthouse we paused and she invited me to have breakfast with her. She couldn’t stop talking about all the trouble she  had in her live, after her sister had died in a caraccident together with her parents. She really must have loved and adored her sister, which had a job as secretary with her later now dead husband.  She offered me to call each other with our first names which I agreed to, hers was Helga.

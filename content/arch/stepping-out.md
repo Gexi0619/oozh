@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: her eyes lighting up behind her glasses. That would be great! I'd love to meet Katie.
 ---
-
 [This is set in the same continuity as "Eagle-eyed lady, nearsighted guy", about a month or so after. Katie and David will feature in this story and are a couple. This story is G-rated]
 
 1.

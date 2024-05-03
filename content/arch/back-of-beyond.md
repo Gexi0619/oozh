@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A disillusioned industrialist builds a self-sufficient commune in Oregon to escape war, facing unexpected challenges.
 ---
-
 I suppose this is the stuff that urban legends are made of, but in this case I can assure you that this story is true.  Back in the late 50's an industrialist who had made himself a lot of money producing airplane parts for the military became disillusioned with the path the country was taking after the Korean war.  So, he purchased a large tract of land in southeastern Oregon and began setting up a self sufficient ranch.  He did not move his family to the ranch at this time, but instead continued making a sizable amount of money from his business interests.  He had diversified into packaging, office furniture and automotive parts after the need for aircraft parts had subsided and all of these companies were doing very well.
 
 Paul Gordon had 3 girls and a son.  The girls were as beautiful as their mother, a former model.  They were tall, and willowy slim with honey blond hair and all three of them were very well endowed. The only thing that likely prevented them from becoming models like their mom was that all three of them had inherited their father's rather severe myopia and they were quite dependent on the minus 10D or so glasses that they had to wear at this time.  The boy, Paul Junior, was also nearsighted but only around -6D or so.  But that was enough in 1967 to get him a deferment from the draft because at the time young males were all being called up to be sent to Vietnam.

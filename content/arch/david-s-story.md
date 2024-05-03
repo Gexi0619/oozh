@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A relatable tale of a young man's love-hate relationship with glasses and contacts, filled with unexpected twists.
 ---
-
 This is a true story with some names and locations along with minor details changed.
 David started having trouble with his eyes hurting around 6th grade. An eye exam showed he was and is near-sighted or myopic. As the years went along David wore glasses until his sophomore year of high school and then got contacts.
 As David graduated high school he was still wearing contacts. He got in job in the food industry in Lexington as a server still wearing contacts. As time went on he wore his contacts seldom wearing his glasses. In fact at times he didn't even know where his glasses were. One day riding with a friends car he found his glasses.

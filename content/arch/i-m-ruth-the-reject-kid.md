@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a world of rejection, Ruth's life takes a dramatic turn when she discovers smoking and her hidden potential.
 ---
-
 My name is Ruth I'm 17 years old,both my parents were killed in a plane crash and I was badly injured when I was 8 years old.
 My aunts and uncles did not want to look after me so I live in an orphanage.We all wear the same blue tops and skirts and dark navy coats.
 When we grew out of them we had to go to see the house mother,who looked in the store room for the next size,then our old clothes are washed and ironed and put in store the the next child that needs them,so we all look alike

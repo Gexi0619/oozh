@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl discovers the power of glasses after borrowing her friend's and transforms her vision.
 ---
-
 My name is Jennifer ,I am 7 years old.
 I have a friend , her name is Ashley , she has beautiful curly hair , I like her very much.
 We like playing ball together , but she is not very good catching the ball.

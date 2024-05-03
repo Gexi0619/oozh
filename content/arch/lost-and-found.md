@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A 6-year-old uncovers a mysterious pair of glasses, leading to a discovery that changes everything.
 ---
-
-                                            
 When I look back at my childhood part of me laughs at the fact that I was slave labor. After all, anyone who puts their 6-year-old child to work for 8 hours a day 6 or 7 days a week and only pays them $1.00 a day is really underpaying them. But I never recall feeling that I was overworked and underpaid, probably because I did not yet realize the value of a dollar. I do remember how proud I was of the great job I was doing. All the waitresses and even my mom and dad often told me that I was doing a really good, and important job, so I was happy. Now, I don’t remember how good a job I was actually doing, and I suspect that the job I was doing was really just something to keep me busy and out of everybody’s hair.
  
 My parents owned a restaurant that was on the road to a tourist destination. People headed for the beaches in the summer and the roads were packed with cars, especially on the weekends. In the winter the people drove up past the beaches and into the mountains where the ski resorts were. Not as many people came to the restaurant in the winter, and my parents were closed on Tuesday’s and Wednesdays from late Fall into early Spring. Of course, I didn’t work in the winter except sometimes on the weekends.

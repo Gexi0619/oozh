@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Join Tom as he discovers a hidden world through a collection of glasses, transforming his perception of reality."
 ---
-
 When I was 10 years old my mom who was often beaten and treated bad by my dad decided to make an end to the violence she had to suffer and stabbed my dad. She was damned by court and brought to prison for the next 10 years. 
 Her cousin Jil offered to take care of me and become my legal guard and so I moved to her little house in the big city next to the village where we had lived before. Jil was a very humble person. She worked as a university-teacher and had no husband and kids. We came into a relaxed routine of living together. She had a small dog that became my best friend in the first days I stayed with her. 
 After some weeks of living together Jil sugested to clear up the little house so we both could use the space more comfortable. We worked a whole weekend , the plan was to make it possible that I could move to the room under the roof of the house, where she before had stored the stuff she didn’t need anymore. 

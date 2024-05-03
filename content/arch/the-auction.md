@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: From growing up in Michigan to becoming a skilled diesel technician in Florida, Shane's life takes unexpected turns.
 ---
-
 Now 21 year old Shane is a diesel technician at a truck stop in Florida and a good one. Shane won a diesel diagnostic contest in the state of Florida moving on to the southeast contest where he finished 3rd. Shane barely missed going to the United States finals as the top 2 from each region go t that contest.
 
 Shane is not from Florida originally growing up in Michigan. Shane played basketball in high school and with good grades had some division 2 colleges interested in him but preferred working with his hands. Shane as soon as he could took vocational education for diesel mechanics. After high school graduation Shane took a job at a truck stop near his hometown. Two things Shane always hated growing up were cold weather and snow which living in Michigan is not a good combo. Only a few months into working at the truck stop a recruiter for the national chain comes looking for mechanics to relocate to Florida. All of the 5 men and two women besides Shane working are married with children and do not want to uproot their families. Shane has not been at the truck stop the required 1 year to relocate but the recruiter when she finds out he's interested asks for and receives a special ruling.

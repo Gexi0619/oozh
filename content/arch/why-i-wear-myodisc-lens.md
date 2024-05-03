@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A haunting diary reveals a mother's struggle with her daughters' deteriorating eyesight and hearing. Secrets unravel.
 ---
-
 I do not remember much about my sister and my early years
 But my mother has recently died and while sorting through her papers I found a diary 
 I was very angry when I read it.

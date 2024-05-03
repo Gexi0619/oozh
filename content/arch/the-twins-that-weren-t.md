@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Twins with vastly different visual abilities navigate life's challenges, seeking identity and acceptance along the way."
 ---
-
 Zennia just posted a Twins story, and since I also had one waiting in the wings to post I decided that I would give everyone a twins week.  Enjoy         
 
  The Twins That Weren’t:

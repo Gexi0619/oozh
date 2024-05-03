@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Tag along with Dennis as he rides along with plumber Neil and delves into the mysteries of an old mansion.
 ---
-
 For a while, after my wife passed away, I would tag along with my neighbor and friend Neil the plumber when he went on house calls. Although I had also once been a plumber I didn’t, nor did I want to, do any plumbing myself. But riding along with Neil was a lot better than sitting alone in my empty house thinking about my late wife. And as a bonus I managed to meet some interesting people in the area.
  
 My ride along days were usually Tuesdays and Thursdays. I had my coffee group on Mondays Wednesdays and Friday’s so I already had something to get me out of the house on those days. As I walked home from having coffee one fine Wednesday morning I noticed that Neil’s panel van was parked at his house with the engine running. Neil came out the door and as he headed for the truck he looked my way and saw me, so he motioned for me to come on over.

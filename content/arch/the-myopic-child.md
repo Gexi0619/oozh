@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A boy's fascination with nearsightedness leads him on a journey to find a nearsighted wife.
 ---
-
 When I started school in the first grade I also received my first exposure to people who wore glasses.  My teacher wore glasses, and so did 2 of the girls that were in my class.  And, because the teacher was a glasses wearer, she made sure that she explained to her students that wearing glasses is not something to be ashamed about.  She also gave us a fairly good explanation of various vision defects, and told us how these vision defects could be corrected by the wearing of glasses or contact lenses.
 
 I don’t know if any of the other students were at all interested in what the teacher had been telling us, but I know I was. I can still see Alyssa standing at the front of the class beside the teacher, who explained to us that Alyssa had to wear glasses because she had cataracts as child, and the lenses in her eyes had been removed, which required her to wear rather thick looking lenses that magnified her eyes.  And when it was Jasmine’s turn to stand beside the teacher, I was enthralled to learn that the reason why Jasmine’s eyes appeared so small and tiny behind the lenses of her glasses was that Jasmine had been born very nearsighted and could not see much of anything beyond the end of her nose without her glasses.  Our teacher was also nearsighted, but she explained that while she could not see very far away without her glasses, her vision was much better than Jasmine’s.  I suppose that it was around this time that I became more interested in nearsighted people, and I remember walking around the shopping mall with my mom, looking at people who wore glasses and trying to determine if they were nearsighted or faarsighted.  For the most part I think I pretty much guessed correctly.

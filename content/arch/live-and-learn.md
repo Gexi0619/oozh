@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A tale of two girls, Patricia and Amy, as they navigate through life with hearing and vision challenges.
 ---
-
 Live and learn.
 
 

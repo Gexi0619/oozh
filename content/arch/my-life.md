@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A captivating exploration of fascination with eyewear and hearing aids, blurring the lines between reality and fantasy."
 ---
-
 MY LIFE
 true or fantasy 
 

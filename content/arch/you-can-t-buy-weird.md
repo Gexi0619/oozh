@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A widower secretly indulges in his unique eye-wearing hobby while navigating life in a new neighborhood.
 ---
-
 Around 6 years ago, shortly after my wife died, I sold the house we had lived in for the past 20 years and moved into the city, where I could be close to my daughter and my grandkids. I ended up buying a small fourplex that was close, but not too close for me to be underfoot. The likelihood of my daughter or her hubby running into me in my neighborhood was minimal as the stores I would be shopping in might have been the same ones they would use, but they had the same chain supermarkets much closer to them.
  
 The main reason for me distancing myself was because I have a hobby. Before my wife died none of my other family have known about my hobby, and about 5 years before she died, I had finally convinced my wife that my wearing very strong glasses over plus contact lenses was because of a muscle problem with my eyes. I have always had a difference between my eyes of about -2.25D and I could see distance well with one eye and I could, even at 71, read with the other. I explained doing GOC in such a way to my wife as a way to help me with an eye muscle imbalance that was known as convergence insufficiency. 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "In a world of orphaned children, two young souls navigate adversity and discover unexpected friendship."
 ---
-
 ------------------------
 The  Worlds of Gail  
 ------------------------ 

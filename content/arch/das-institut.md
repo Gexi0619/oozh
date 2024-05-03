@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A rebellious teenager navigates her seventh boarding school in Switzerland, determined to defy her CEO father.
 ---
-
 Hello dear forum, dear authors and readers 
 
 I wish everyone a belated Happy Christmas!

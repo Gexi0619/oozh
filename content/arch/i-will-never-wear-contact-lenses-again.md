@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman falls for her new boss, only to discover he has a thing for glasses.
 ---
-
 Now, I am sure,I will never, wear contact lenses again.
 
 I was very fortunate, that after graduating, I became employed, to work at a factory sales office.

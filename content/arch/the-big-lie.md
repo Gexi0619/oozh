@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this gripping fantasy tale, a young boy grapples with an irreparable eye condition that alters his life forever.
 ---
-
 First just to be clear this story is fantasy. I say that because in a couple of stories I've mentioned wanting to either not live or killing myself and nothing is farther from the truth.
 I was born in 1969 on the day of the first moon landing to a Mother who was only 17 at the time. My Mom had to have a "shotgun" wedding which was common back then. The man who married my Mom and was listed as my Father on the birth certificate quickly figured out that was impossible. The man was in the army at the time I was conceived. My Mom tried to claim I was premature but he became skeptical when I weighed 11 punds at birth. The man left my Mom about 6 months after I was born.
 All this is not to say my Mom was a bad one. With my Grandparents help my Mom went to work and at night took courses to complete high school which she was given no choice to drop out of when pregant. Things are thankfully different now but back then a pregant could not go to high school in most districts. My Grandparents who I found out later never had much money or owned a house both passed away within 4 months of each other when I was 8 and money really became tight. Schools did not require physicals back then so I was only taken to a Doctor when absoutely necessary. 

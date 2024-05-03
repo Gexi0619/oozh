@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Carolyn discovers the allure of glasses, leading to a surprising twist when her boss seeks her advice."
 ---
-
 Carolyn had graduated from business college, and worked in the office of a small manufacturing plant. She liked her work and the people she worked with.
 Some time later a new office manager was appointed . He was a pleasant , good looking man , she guessed about 30 years old.
 She was wishing he wore glasses, that would make him a perfect male specimen.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A family's love of baseball intertwines with unexpected challenges as their children face vision issues.
 ---
-
 Jimmie.
 
 

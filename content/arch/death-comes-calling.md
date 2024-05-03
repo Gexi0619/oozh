@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a retirement home for the highly myopic, a mystery unfolds as a person lies motionless outside.
 ---
-
 She sat in the easy chair, looking out the big picture window towards the trees that surrounded the home.  As the dawn crept over the horizon she thought that she could make out a mound of something at the edge of the lawn, just before the beginning of the forest. She squinted through the thick lenses of her glasses, struggling to attempt to make out exactly what was there.  But it was no use. Her eyesight, even with the new lenses in her glasses was, as she told everyone, completely unreliable any further than about 20 feet away from something.
 
 Jamie, the morning attendant, entered the room and told her that the early breakfast was being served momentarily.

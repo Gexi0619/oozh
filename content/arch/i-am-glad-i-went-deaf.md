@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two friends embrace their need for glasses and find confidence as their prescriptions continue to grow.
 ---
-
 I am glad, I went deaf.
 
 

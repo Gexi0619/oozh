@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Maiya, a myopic chemist, is introduced to "Transgressions Lenses" and navigates the struggles of her vision.
 ---
-
 Transgressions
 by Dieter
 

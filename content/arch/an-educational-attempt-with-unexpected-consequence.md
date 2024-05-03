@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy borrows his cousin's glasses and discovers a new perspective, facing challenges and unexpected excitement.
 ---
-
 It was in the first month after I moved with mom and dad to Hamburg, that my Cousin and her girlfriend came to visit us there. It was summer vacation and the three of us spend a good time together strolling through the city and driving across the harbour with ferryboats. We were all about the same age 14,15 years old. Irene my cousins friend had glasses with her that she didn't wear except for short occasions. It was obvious that she was not able to see good without them, but she didn't want to wear them constantly. She told me, that she didn't like to be seen with glasses. I told her, that I thought she looked good with them and so did my cousin. But it didn't convince her. 
 I thought about how I could encourage her and had the idea to offer her to wear her glasses instead of her to demonstrate that its OK to be a glasswearing person.
 " Take them whenever you want" was her reply.

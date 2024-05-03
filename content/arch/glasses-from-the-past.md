@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man starts a new chapter in his life after moving to Arizona and finding a mysterious box of glasses.
 ---
-
 Recently I moved from the house I had lived in for over 30 years. I was now 56 years old, retired, recently separated and with no idea as to what direction I wanted to head in for the rest of my life.  The separation and what I figured was a pending divorce had made it necessary to sell the house and split the proceeds, but in actual fact the darned place was too big for me anyway.
 
 Lisa, my ex, and her friend Sheila had come by to remove any of the things that Lisa wanted to keep, and I had to load the balance of the contents into a U Haul truck that I had rented.  Towing my car on a dolly behind me, I left the city where I had spent most of my life, heading for a warmer spot in the American Southwest.  I didn’t know where I wanted to end up, but I thought that my first stop would be somewhere around Kingman, Arizona.

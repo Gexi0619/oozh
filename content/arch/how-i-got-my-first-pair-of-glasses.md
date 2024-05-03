@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young beauty queen's world is turned upside down when she discovers she needs glasses.
 ---
-
 My problems started when I was 16
 
 Even though I say it myself I'm sure I was the prettiest  girl in our town,

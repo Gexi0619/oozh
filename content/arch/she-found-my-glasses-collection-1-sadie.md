@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Sadie discovers her partner's secret glasses collection, leading to an unexpected and revealing conversation.
 ---
-
 She found my glasses collection #1  (Sadie)
 
 Writing prompt 1, September 2020

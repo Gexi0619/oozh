@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's journey with glasses leads to self-discovery, acceptance, and unexpected attention from a charming doctor.
 ---
-
 I got my first glasses when I was 13 years old and was just going into grade 8. I had noticed the previous school year that I could no longer see things clearly that were very far away, but fortunately school was dismissed for the summer holidays before anyone noticed my predicament. I had been a little worried about saying anything to my mom because she had been telling me for years to get “get your nose out of that book or you will ruin your eyes”, and now it had been proven to me that she had been correct. I knew I read too much, and this summer had been a time when I read more books than usual, mostly because I couldn’t quite see clearly enough to do outside things like playing badminton or baseball. Even going to the pool was difficult because I could no longer pick out my friends until I got pretty close to them and it was getting a little scary to ride my bike.
  
 When the girl at the glasses store put my new glasses on my face it was wonderful. I could see everything oh so clearly again. Mom asked her if I needed to wear my glasses all the time, and the girl told her that with my prescription it would be best if I did, but I could make that choice myself after I wore them for at least a couple of weeks to allow my eyes to adjusted to the better eyesight I would have with glasses.  Apparently, according to the optician, my prescription was a little bit stronger than most first-time glasses wearers needed. I don’t remember what the numbers were, but I think the first numbers were something like -2.25 and then there were a couple of other numbers.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: to wear glasses. The new neighbors' glasses inspired him to get his own.
 ---
-
 Now I know.!
 
 

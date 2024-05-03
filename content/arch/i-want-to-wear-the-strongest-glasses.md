@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Amidst a family of glasses wearers, a young girl's fascination leads her down a path of newfound vision."
 ---
-
 I want to wear the strongest glasses !
 
 

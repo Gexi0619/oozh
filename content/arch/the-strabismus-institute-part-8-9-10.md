@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: The protagonist undergoes a nerve stimulator test to determine the cause of their eye muscle issue.
 ---
-
 The Strabismus Institute
 
 Part 8 - The Nerve Stimulator Test

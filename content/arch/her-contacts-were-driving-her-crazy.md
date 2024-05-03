@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Ariana, a struggling writer, takes a housekeeping job that turns into a nightmare when her contacts drive her crazy.
 ---
-
 “This royally sucks,” said Ariana out loud to no one in particular, chuckling at the irony of the statement as she dusted the expensive jewelry case in which some kind of crazy expensive crown was being displayed. She didn’t know if it had ever belonged to a king or a queen, but at this point she didn’t really care either. This housekeeping gig had gone on too long, and she had really had it. This job which had started as an extremely lucky break for her had turned into a nightmare, and for such a stupid reason too: her contacts were driving her crazy. 
 
 She knew from the beginning that it would be a bit lonely to take care of a mansion in the hills all alone for the winter, especially given that it would be snowed in the whole time, but it really had seemed perfect for her. She could have the time to write her novel uninterrupted, and she would be making more than a decent buck at the same time. Others might be have been too scared to take this chance – after all, “The Shining” was a pretty scary movie - but she wasn’t afraid of ghosts, elevators full of blood, or overrated pulp horror writers from Maine. It was going to be fine. Well, up until the fact that she somehow forgot to bring her stupid glasses along with her. She could have sworn she packed them, but then again she knew she was kind of a clutz sometimes.

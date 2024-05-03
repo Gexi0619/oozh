@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two brothers discover they both need glasses, but only one is excited while the other is resistant.
 ---
-
 My name is Mark and Max is my identical twin brother. We get along really well and consider ourselves really good friends. When we were in 4th grade we both started noticing it was getting harder to see the board in class. At first we thought this was normal, but soon learned it was not when our friend Sam came to school wearing glasses and let us try them on. When I wore Sam’s glasses I could see perfectly.  Then I passed them to Max so he could try them. When he put them on he was a bit shocked. He asked Sam if he could wear them to the bathroom and see how he looked in the mirror. Sam said sure, and Max slipped out of the classroom. Once in the hallway Max took off the glasses so as not to be seen wearing them until he got to the boys room. At the mirror he put the glasses back on and hated the way he looked. 
 
 While Max was in the bathroom, Sam and I were talking and I told him how much better everything looked while I wore his glasses. I asked him if they were strong. He told me his doctor said his prescription was only -1.25 in both eyes but that he still should wear them all the time. At this point, Max came back from the bathroom and quickly handed Sam back his glasses. He looked a bit scared and nervous. Our teacher then said break was over and it was time to return to the lesson. So we did. 

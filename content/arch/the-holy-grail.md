@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Enter the world of an optic obsessive who seeks the Holy Grail of glasses in this gripping tale.
 ---
-
 I am an optic obsessive person. I love to see and study people who wear glasses, and although I am fascinated by people who wear strong plus glasses my main focus is on those who wear minus glasses. I love looking at men or women who wear glasses that range from prescriptions in the low teens, all the way up to the very, very strong glasses that are worn by such a small number of people. An attractive young lady wearing a prescription in the low to high -20’s will immediately become the focus of my attention, and fortunately for me there are more and more of these young ladies around. To me, it is too bad that contact lenses have reduced my viewing pleasure considerably, although I know that those who have strong prescriptions have much better vision when wearing contacts. And I know that they also feel better about themselves because they do not stand out in a crowd wearing what they call coke bottle glasses.
  
 To me, the Holy Grail of glasses are those who wear myodiscs that are so strong that the prescription cannot be guessed with a reasonable certainty of accuracy. Not that guessing prescriptions is very accurate anyway and a bunch of other men with similar interests to my own have nicknamed the guessing of prescriptions as “SWAG”, which stands for a scientific wild assed guess.

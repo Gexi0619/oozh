@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: As Joe's severe nearsightedness brings them closer, Nicole becomes his eyes and their intimacy deepens.
 ---
-
 I've been playing around with ChatGPT -- the new AI chatbot that can generate freakishly human like text, among other things.  I've had a few story ideas before but never did anything with them as I'm not all that great or interested in actually writing.  So I'd thought I'd try giving ChatGPT an outline a section at a time and seeing what it comes up with.  This is the result... maybe 10 minutes worth of work, if that.
 
 -----------------------------------------------------------------------------------------------------------------------

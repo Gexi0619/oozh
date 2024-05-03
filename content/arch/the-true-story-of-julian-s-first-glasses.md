@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this gripping memoir, the author takes us on a journey through the hoops of getting their first pair of glasses in 1957 UK.
 ---
-
 (from ‘When I was at school’, 31 December 2007)
 
 Ages ago I promised, or threatened, to tell the whole story of how I got my first glasses, and the hoops you had to jump through in the UK in those days before getting them.

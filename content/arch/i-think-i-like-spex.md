@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A gripping story of self-discovery and redemption as two boys navigate sports, glasses, and their evolving identities.
 ---
-
 Bryson is a sturdy ,athletic boy , an average student, who loves playing sports. He always likes to be the best and plays to win , sometimes he is a bit of a bully.
 School was finished for the year and the baseball season was in full swing. Bryson was a pitcher , but also played outfield, was a very good hitter, a good all around player.   Toward the end of the season their team was in the playoffs, when every game was important.
 Bryson had pitched in their last game and they had won, to day he played in the outfield, the other outfielders with him were Jeff and Peter.

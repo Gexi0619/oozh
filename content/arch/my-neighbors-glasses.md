@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jennifer discovers a neighbor's surprising journey with glasses, prompting her to consider her own vision problems.
 ---
-
 My neighbours glasses.
 
 

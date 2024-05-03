@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Three friends navigate through school, glasses, and friendship, as they grow up together from kindergarten to grade 12.
 ---
-
- 
 Ashley, Amber and Alyssa, that’s us, the three A’s. When we started kindergarten there used to be four A’s, but Adriana moved away when we were in grade 2 and that left the three of us to continue on through to the end of grade 12 together.
  
 The first day of school when I met Ashley I was intrigued by the glasses that she wore on her face.  I knew a few adults who wore glasses, but Ashley was the first person my age who wore them.  She didn’t seem to mind that I asked her a few questions about her glasses and she willingly told me that she was quite nearsighted and had gotten glasses when she was 2 years old. She also told me that she never took them off except to clean them because without them she couldn’t even see who I was when I was standing just a couple of feet away from her. Ashley was about my height and build, which was a pretty normal size for someone of kindergarten age. We were both blonds and had similar skin tones.

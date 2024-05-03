@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young woman navigates the challenges of her vision impairment and abusive relationships while living in Switzerland.
 ---
-
 Switzerland is a great place to live, but let’s face it. It’s expensive as f… I have to pay taxes for everything! But I love living here.
 
 I was born in Canada, my mom is Portuguese, my dad French and when I was 9 years old we moved to Hungary with my stepdad. I lived there most of my life but when I was 22 I came to Switzerland with my boyfriend at that time.

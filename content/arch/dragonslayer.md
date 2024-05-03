@@ -7,13 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: With her hypnotic eyes, unwavering determination, and the power of her glasses, she embarked on a mission that would test her physical, emotional, and mental strength. She fought alongside a motley crew of misfit dragon enthusiasts.
 ---
-
------------------  
-Dragonslayer  
------------------ 
 
 Some of the most important parts of Draconic legend are these: their eyes can hypnotise, and although very hard to slay, they have but one vital spot...  
 

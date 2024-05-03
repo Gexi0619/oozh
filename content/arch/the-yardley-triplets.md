@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: them made Halley wear Lesley's old glasses. Halley was happy because now she fit in with her sisters.
 ---
-
 I use spellcheck. Sorry if english not so good.  
 
 Bruce Yardley was a doctor and had always dreamt of having a son to carry on the family name.

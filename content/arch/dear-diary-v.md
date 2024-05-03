@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A pregnant woman copes with the loss of her boyfriend while navigating the complexities of her family.
 ---
-
 -----------------
 Dear Diary V
 -----------------

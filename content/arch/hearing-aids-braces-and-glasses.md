@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A sibling's journey with glasses triggers an unexpected obsession for one person, leading to a life-changing discovery.
 ---
-
 If you asked me today if I could tell you the point in my life that was the pivotal point of my obsession to wear glasses I guess I would have to tell you that it was when my 12 year old sister was prescribed her first glasses.  For Sarah, having to wear glasses was the absolute worst thing that could ever have happened to her, and I could understand her feelings.  Sarah had worn hearing aids for a mild hearing loss ever since she was 5 years old, and while she could go around without them there was a range of sounds that she could not hear properly, so she wore them pretty much all of the time.  Then, a year before she was prescribed her first glasses; Sarah had gotten braces to straighten her teeth. Because Sarah had been sitting at the front of her classroom for most of the school year I suspect that she was likely already slightly myopic when she had to get her braces, and I think she managed to struggle along for another year before it was discovered that she “couldn’t see a thing past the end of her nose”, as my father stated when he came home from the eye doctor with Sarah.  I didn’t think it was quite as bad as Dad made it out to be, but I had already noticed that Sarah really couldn’t see much of anything and I already knew it was only a matter of time before her poor eyesight was discovered.
 
 It took about 3 days before Sarah got her new glasses, and when she came home from the optician’s wearing them I could tell that her lenses had a pretty decent amount of power in them.  I didn’t know what -3.00D meant, but I soon learned that once Sarah began wearing her glasses they became, like her hearing aids, something that she no longer wanted to go much further than past the door of her bedroom without wearing them.  To Sarah, on top of her hearing aids and her braces, having to wear glasses was the end of her world.  But as I looked at her, wearing her new glasses, I was extremely envious of her. I would have given anything to have been able to wear her glasses.

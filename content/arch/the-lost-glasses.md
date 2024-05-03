@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An accidental discovery of lost glasses leads to a surprising revelation and newfound confidence for Cindy.
 ---
-
 The lost glasses.
 
 

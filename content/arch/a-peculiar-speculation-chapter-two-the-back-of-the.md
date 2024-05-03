@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In the midst of navigating popularity and friendship, a young boy develops an unexpected fascination with glasses.
 ---
-
 Enough time lapsed in between my newfound obsession with Rachel’s glasses that I began to feel things were back to normal. Few reminders of my attraction to glasses and those who wore them remained in my daily life, but surely enough, old patterns began to repeat themselves by the time I was in 5th grade. 
 
 At this age I also had two friends who were girls, Julia and Melissa. I was not fully committed to my companionship with the two however. I could tell they both liked me a good deal for they were the artsy types and I was already different from all the other boys in class. I enjoyed playing rock guitar and was the best at drawing, though my talent was soon rivaled by Julia who competed with me once she began taking art classes. Melissa also became an accomplished artist by self teaching. I was flattered by these gestures, but embarrassed at the same time.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man falls in love with a woman who wears glasses and discovers a surprising connection with his own obsession.
 ---
-
 Back in 1976 I was dating a rather attractive young lady named Michelle. She was, like every other girl I ever dated, a glasses wearer, and while her glasses were not the strongest pair of glasses I had ever dated, the wearer of these glasses was one of the nicest looking girls I had gone with. Michelle also had a very pleasant personality. She could be serious at times, but she certainly knew how to joke around when that was called for. Even though her glasses were a lot weaker than I would have preferred my wife to need I realized that a perfect pair of glasses would not necessarily mean that the girl would be nearly as wonderful a person as Michelle was.
  
 Sometime in 1977 Abba released a record called “Take A Chance on Me”. At the time we had been dating for about a year, and I had already floated the idea of us getting married. I hadn’t formally asked Michelle, but we had a few discussions and although I noticed a bit of reluctance on her part, I was pretty sure I would eventually be able to talk her into marriage eventually. With the release of that Abba song and the constant airplay that it received I was finally able to convince her to “take a chance on me.” We were married in 1979, almost 8 months before our daughter Angelina was born.

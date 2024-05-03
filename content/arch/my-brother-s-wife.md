@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man's perception of his brother's plain wife changes drastically after a tragic accident reveals her hidden beauty.
 ---
-
 It had been about 5 years since my older brother Ron had married Sue and I didn't like her any better at this point than I had before he married her. There was really nothing wrong with Sue as a person, but I found her especially unattractive.  She couldn't be called ugly, but she certainly could be described as plain looking and the plainness made her appear frumpy, or as some people call it, dowdy.  Her eyes appeared to be kind of weird, as they were fairly small, and had an outward bulge to them and they always appeared to be partially closed. Her hair was a mousy brown, and she wore it parted in the middle and it usually hung limply around her face down to her shoulders.  She never wore any makeup, nor tried to make herself look more attractive by wearing bold, colorful clothing.  She had a very nice body, with a decent chest size, a nice trim waist and a great rear end. Her legs were also very shapely, but she just didn't attract me.  Ron was a good looking guy, and I just could not see what he had found attractive in this plain jane lady.  But Sue was his wife, so I did my best to be pleasant towards her,  and even though I am sure I she could sense my disdain towards her she seemed friendly enough towards me.
 
 The call came late one evening. Ron had run his Harley broadside into a car that had made a left turn right in front of him.  It wasn't his fault, but when you are riding a motorcycle and some driver cuts you off like that you don't have much of a chance. I knew Ron would have had his helmet and all his safety equipment on, because he was far more conscientious when riding than I was, but even so it did not surprise me when mother told me he was in intensive care, and the prognosis wasn't good. I dressed and headed for Ron's place to pick Sue up and get to the hospital.

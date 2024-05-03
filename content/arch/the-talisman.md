@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Sarah discovers a mysterious talisman that grants her wishes, but soon realizes the consequences of her power."
 ---
-
 -----------------
 The Talisman
 -----------------

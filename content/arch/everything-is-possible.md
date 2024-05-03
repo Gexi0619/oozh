@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "In a small town, a girl fascinated by parallel universes seeks guidance from a mysterious mentor."
 ---
-
 (If you take the time to read this story I'd love if you could leave me a comment with your opinion on it. Thank you so much)
 
 I’m tired of living in my shitty town, you might think that being a pretty girl solves your problems but it doesn’t. I’ve always been into physics, you know I’m kinda like Sheldon from the Big Bang theory but pretty and without his social anxiety. I’m 5.3’, I used to like long hair but it’s been a while since I decided on a chin-length cut. Since I was little I used to swim and play volleyball a lot so my body developed nice from a very young age.

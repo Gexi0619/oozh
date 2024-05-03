@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: After experiencing frequent headaches, Ashley discovers the unexpected allure and benefits of wearing glasses.
 ---
-
 After finishing a  business Course, Ashley , a pleasant looking girl started to work in an accounting office.
 She liked her job, the people she worked with, and the pay was good.
 At home her parents were happy Ashley did so well, and by living at home would have a change to save some money.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: vision. But there's a surprising twist when Andy finally gets what he wants.
 ---
-
 Hi! My name is Andy.
 Ever since I can remember, I have loved the looks of glasses.
 I don t know why I like glasses so much, I don t wear them, and nobody in our family does,

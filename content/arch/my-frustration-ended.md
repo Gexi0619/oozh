@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Childhood friends turned sweethearts, Edie and the narrator's love story endures despite their unchanging vision.
 ---
-
 My wife Edith and I were both born in 1960 and we were in the same grade all through school.  At first she was a girl, and no young boy wanted anything to do with girls, so to me she was just one of those pesky girls in my class.  However, once we progressed into the teenage years and some of my friends began to express interest in girls Edie and I gradually became friends.  Then when we were both 15 I actually asked Edie to go to a high school dance with me.  Before I knew it we were going steady.  And the next thing I knew was that the year we both turned 21 we were married.  It certainly helped that Edie was a very easy going girl, and as a result our marriage has lasted almost 35 years.
 
 When I first started going out with Edie she did not wear glasses.  I had already noticed that I liked the looks of girls who wore glasses, but of the girls I knew that did wear glasses not one of them attracted my interest romantically.  When Edie was 17 she discovered that she was having a little trouble with her distance vision. She had passed her eye exam for her driver’s license the previous year without glasses so it was a little bit of a surprise when she was prescribed her first pair of glasses with a prescription of -0.75D for both eyes. When she asked the optometrist if she should wear her glasses for driving he told her that she probably should, but she still met the minimum requirement for driving without them.

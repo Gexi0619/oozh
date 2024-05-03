@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A hardworking girl grows up while navigating friendships, part-time jobs, and discovering her visual impairment.
 ---
-
-                                   
 My wife and I had lived next door to Dave and Lynn for the past 10 years. They had only one child, a daughter named Kelcie, who was a very good student and an industrious young lady. Even though we didn’t have a big lawn I hated cutting the grass, and when I saw Kelcie cutting the grass for Dave when she was around 12 years old, I hired her to cut my grass as well. Then when Kelcie was 14, she was hired by a nearby Subway, where she quickly learned the ropes. She still cut our grass for a while longer as well as putting in as many hours as she could at the Subway, and when I asked her what she was going to do with all of her money she told me that she wanted to go to either University or a community college after she graduated from high school, so she needed lots of money in order to not have a big debt load after she graduated.
  
 Kelcie was a rather attractive mixture between her dad and her mom. She was only around 5’2” or 3, was fairly thin, almost to the point where she could be considered skinny. Lynn was about the same height, but where Lynn had rather voluptuous breasts Kelcie could be considered flat chested. She had a really cute face, and her hair was the same reddish brown as Dave’s was. I suspected that her breasts would still grow a little because she was likely on the cusp of puberty and if they did, she could be a really cute little package once she turned 18.

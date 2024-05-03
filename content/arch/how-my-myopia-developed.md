@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the shocking journey of how one person's myopia developed, fueled by overprescription and a secret obsession.
 ---
-
 I saw this on another forum but had never seen it here.
 It just hapens to be about things I like.
 Joe

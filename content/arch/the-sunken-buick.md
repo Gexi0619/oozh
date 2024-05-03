@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In November 1965, Donna and Jerry spend their last night together before he goes off to war. In July 2013, a car with two skeletons is discovered, leading to a murder investigation.
 ---
-
 November 1965:
 
 "Thanks for looking after Shannon Mom. Jerry and I just want to spend some time together on his last night." Donna said.

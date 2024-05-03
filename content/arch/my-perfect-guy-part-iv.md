@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Part four picks up with the protagonist adjusting to life with glasses and navigating a night out.
 ---
-
 Hello everyone! So sorry I took so long, here's part four. I would like to thank soundmanpt, nic, lorelai.grace82 for your nice comments on my last post, I love your stories as well!! 
 
 This one is dedicated to my friend "glassesforeveryone" thank you for your kind words.

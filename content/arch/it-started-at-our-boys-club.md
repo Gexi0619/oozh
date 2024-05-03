@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kevin's desire for glasses becomes a reality when he receives a surprise gift from his friend's sister.
 ---
-
 It started at our boys club.
 
 Mike, Logan and I, Kevin, live on the same street and have been friends since grade one.

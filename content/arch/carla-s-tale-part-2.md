@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In Part 2 of Carla's Tale, a series of fruit mishaps leads to an unexpected encounter with a handsome stranger.
 ---
-
 Carla’s Tale - Part 2
 
 Before reading this, please make sure you have read the first “Carla’s Tale”.

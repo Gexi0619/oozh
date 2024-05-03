@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: From childhood challenges to a surprise opportunity, an actress reluctantly embraces her role as a glasses-wearing girl.
 ---
-
 TThe glasses wearing actress.
 
 

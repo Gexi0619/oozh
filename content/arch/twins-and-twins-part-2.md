@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A gripping story of self-discovery and hidden secrets unravels as four young friends navigate love and identity.
 ---
-
 After the football practice , being all sweaty Corey and Bradley had a shower.
 Bradley looked at Corey s well developed body and liked what he saw , lots of firm muscle ,strong abs, and he was well hung to.
 He looked fantastic wearing glasses

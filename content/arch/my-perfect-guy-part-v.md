@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A couple navigates the complexities of their relationship, embracing their unique vision impairments and finding acceptance.
 ---
-
 Final part coming tomorrow  
 ----------------------------------------------------------------------------------------------------------------------------------------------
 

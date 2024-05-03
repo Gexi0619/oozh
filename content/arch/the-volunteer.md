@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a 4th-grade class, a teacher suspects a student's visual impairment. A journey unfolds to help her see.
 ---
-
 The last year that I taught school before I retired, I had a reasonably manageable class of 4th grade kids. During the latter part of grade 4 some of the students would have their 10th birthday, and when they had gone on to grade 5 the whole class would then be 10 by Christmas time. One young lady named Amanda Mathews was more noticeable by her silence than by her participation, and shortly after Christmas that year I began to suspect that part of her problem might be caused by a visual impairment rather than by a lack of intelligence.
  
 After watching Amanda for a while, I decided that I would talk with the school secretary and see about sending a note home to the parents to see if Amanda could have a vision assessment done. I thought that she could likely see fairly well up close, because she was often reading or drawing pictures in her notebooks, but her face had a vacant expression when she looked up at anything in the distance.

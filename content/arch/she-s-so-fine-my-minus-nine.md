@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A weekend beach party turns into a potential romance when Andy meets glasses-wearing beauty Andi.
 ---
-
 My buddy rented a cottage at the beach one weekend many summers ago and a bunch of us drove up from the city for a weekend of partying.  I know he invited a whole bunch of our friends but I don’t think he counted on having quite as many people show up. By the time the campfire was put out Friday night there were 7 people sleeping in the cottage as well as 5 tents pitched in the sandy yard.  At the time most of us were in our mid 20’s and while there had been a lot of beer consumed there were no fights or problems. Actually the biggest problem was that the washroom in the cottage was overflowing with people trying to get rid of all the beer.
 
 I hadn’t paid too much attention to all the girls that showed up other than to note that there were 8 guys and 10 girls there.  None of the girls really caught my eye or anything until closer to the end of the night when I noticed an attractive long legged girl with dark hair come out of the washroom. She was now wearing a pair of glasses with a pretty decent minus script.  I doubted that the glasses were a double digit prescription, but I could tell from the flat fronts of her lenses that they were pretty close.  I had never seen this girl before and I certainly would have noticed her around if she had been wearing her glasses.

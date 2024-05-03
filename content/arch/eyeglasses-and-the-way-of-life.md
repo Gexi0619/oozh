@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A peddler helps Angus Mac Donald with his failing eyesight, sparking the construction of a new school.
 ---
-
 This story is about 30 to 40 years before electricity became available.
 
 The Mac Donald family is now well settled , they had bought their farm at Four Corners 6 years ago in 1883.

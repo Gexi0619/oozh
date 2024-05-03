@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Step into a world of acceptance, love, and unexpected twists as two couples navigate life wearing glasses.
 ---
-
 ,My introduction to wearing glasses, x 2
 
 

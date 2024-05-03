@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Natalie's trip to the ophthalmologist takes an unexpected turn, leading her on a journey of self-discovery.
 ---
-
 Being addicted to wearing my eyepatch, I wrote a story about a teenage girl who gets glasses and a patch. Sorry for mistakes, English is not my native language and it is my first story. I hope you enjoy the story. Please leave a comment if you like it, or don't like it  
 
 

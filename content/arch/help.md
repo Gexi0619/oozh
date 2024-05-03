@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A visually impaired girl goes on a nerve-wracking date with a handsome guy who surprises her with his kindness.
 ---
-
 I know it has been a while since I last posted here but I’ve been so busy you wouldn’t believe it!
 
 School is hard, and I don’t mean it in a personal way, it’s just hard! 

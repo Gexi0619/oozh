@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A couple navigates relationship milestones, discussing marriage and overcoming toxic behavior, while embracing the practicality of swimming goggles.
 ---
-
 We got in the car and Mike was so excited he didn’t even notice how quiet I was
  
 “Babe I haven’t been able to see as good as I could with the trial frame in ages, and you know what the best part is? It always improves when you have the actual glasses. And they’re gonna be so thin, well maybe not that much cause you know the prism correction makes it thick anyways, but still I’m static to actually have that option. I wish surgery wouldn’t be as risky as it is, that would be an amazing option tho…”

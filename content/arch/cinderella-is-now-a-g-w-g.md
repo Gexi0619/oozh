@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl finds her late mother's glasses and uses them to transform her life at a royal ball.
 ---
-
 Thanks to Puffin for the suggestion.
 
 I was not very happy when my father remarried after my mother s death.

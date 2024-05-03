@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Young woman's desire for perfection pushes her to questionable measures, ultimately leading to unexpected consequences.
 ---
-
 -----------------
 Shooting Star
 -----------------

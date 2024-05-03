@@ -7,12 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young specsaholic's obsession with strong prescription glasses grows deeper, overshadowing his quest for love.
 ---
-
-                                        
- 
 I am a specsaholic. That is the only word I can use to describe myself. An alcoholic can’t stop himself from wanting alcohol, and will drink themselves into oblivion without any consideration for others or for his or her own health.  My health is not really affected by my disease, but my life certainly is.  I love glasses, that is all there is to it.  Oh, I don’t really care for those pairs of glasses that have the lower prescriptions.  But if a pair of glasses has a prescription of over +6D or -9D I can’t stay away from them. If there was a pair of lower powered prescription glasses sitting on a counter I would not be able to stop myself from picking them up and trying them on, but as I said, glasses with a lower prescription do not really affect me.  I would never rip a pair of strong glasses from a person’s face to try them on, but the thought of doing so has actually crossed my mind a time or two.  And if you leave your glasses behind on a bus, or in a restaurant and I happen to find them, if the glasses have a decent prescription you will never see them again.
  
 You might think I am an older person but let me assure you that at this point I had only recently passed my 26th birthday. My specsaholicism has been part of my life since I was about 12 or 13, and it has just grown deeper and more severe with each passing year. At first I wanted very badly to need and wear glasses myself, but I couldn’t find a way to convince my parents that my vision was anything less than perfect. This meant that, unfortunately, I was never able to get a pair of glasses of my own that I could wear until about 2 years ago, when I finally ordered myself a pair of -2.50D glasses from an online optical store. I have worn these glasses for almost 2 years now, and I think I see a bit better when I am wearing them, but I really never take them off so I can’t be sure.  I am planning to increase the power of my glasses to at least -3.50D very soon, and maybe I might even try -4.00D, but I am afraid that I might not be able to wear a pair that strong.

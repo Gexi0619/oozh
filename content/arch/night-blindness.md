@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young couple's relationship takes a surprising turn when the girlfriend discovers she has night myopia and needs glasses.
 ---
-
 I had been going with Janice since she was 15 and she has only gotten prettier since we first started dating. I really like her and we plan to get married once we graduate and are out in the work force. The only thing that could have improved her appearance would be, in my opinion, if she were a little nearsighted and needed glasses. I kind of like the looks of girls that wear glasses, but since she had good eyesight I guess all I could do was wish.
  
 Janice got her temporary driver’s license at 16, and had to pass an eye test. Then when it was time to convert her beginner’s license to a permanent one when she turned 17 she had to pass another eye test. She passed both these eye tests with perfect vision, which is why I was very surprised when she told me she was having a lot of trouble seeing the road signs when she was driving to work. She was working for the summer at a restaurant at a marina and she had to be there at 5 in the morning to open up and put the coffee on. So she was driving in the dark for about 30 minutes before daybreak on the weekends in May. As the longest day of the year approached she didn’t say anything about having any more problems seeing things, but as the days gradually grew a little shorter, by August she was really complaining about her eyesight. I had heard of night myopia and had read a little bit about it. Apparently, night myopia could manifest itself from as low as -0.50D all the way up to a maximum of -4.00D, but the higher amount was very rare and all most people required was a correction of -0.50D up to -1.50D.

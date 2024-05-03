@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Three Indiana schools come together for a production of "The Wonder Years," facing challenges and unexpected connections.
 ---
-
 This is not a true story but some schools in the Southern Indiana area just North of Louisville Kentucky do get to together for student theater productions on occasion.
 Three schools in Southern Indiana decided to join forces for a complicated production of the TV series "The Wonder Years". The series was based on teenagers growing up in the late 60's and early 70's. The series dealt with issues of the day such as the death of an older Brother of one of the main people that was killed in the very unpopular war in Viet Nam. The series had a school named after Robert Kennedy after he was killed by a gunman. The series was considered somewhat cutting edge.
 Bookworm Paul was the only regular who wore glasses. Ironically a student named Josh tried out for and won the role of Paul. Ironic for two reasons one being the actor playing Paul first name was Josh. The other irony was Paul's Dad in the series was an Optometrist and Josh's Dad is also one. One of the adults involved in the play knew somebody from the series and was able to get permission to do the play.

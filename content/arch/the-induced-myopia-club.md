@@ -7,11 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's obsession with glasses leads her on a surprising journey of self-discovery and friendship.
 ---
-
-  `                            
+`                            
  I don’t know how I happened to develop a fascination for glasses. I suspect that it was probably in me long before I sat beside Marie in grade 5 the year I turned ten. But I know for sure that the glasses that Marie wore intrigued me, and after she let me try them on one day, I found many other excuses to borrow her glasses. I told Marie I needed her glasses in order for me to see the teacher’s writing better.  I could see when I put Marie’s glasses on.  It wasn’t that I couldn’t see when I didn’t have Marie’s glasses on, it was just that when I put her glasses on, I was amazed that I could see extremely well, and I wondered exactly why Marie had to wear glasses.
  
 School was almost over for the year.  Marie had told me that her family was moving as soon as the school year ended, as her father had been transferred to another city. I was very sad about this.  No, Marie wasn’t one of my closest friends.  I was sad because I would no longer have the chance to wear Marie’s glasses anymore.  And then the most wonderful thing happened. The day before the end of the school year Marie came to school wearing new glasses.  She let me try her new glasses on, and I wasn’t able to see out of them as well as I could with her old ones.  I told her that I could see much better with her old glasses, and Marie took out a case containing her old glasses and handed them to me.

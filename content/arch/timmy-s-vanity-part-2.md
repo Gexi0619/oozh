@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Discover how contact lenses transformed my life and the surprising journey of my changing prescription."
 ---
-
 My life completely changed for the better when I finally got contact lenses. I had been suffering from my myopia all throughout middle school so it was a huge relief at the end of 8th grade when I got contacts with a prescription of -2.00 in my right eye and -1.75 in my left. I got a pair of glasses too but as I mentioned before I really didn’t want them so I never ever wore them, unless I was at home watching tv and my sister had taken the seat closest to the tv. 
 
 During the summer before high school, I didn’t really wear my contacts much around the house. As awesome as it was to be able to see clearly, my vision was not bad enough to warrant the use of lenses at home, unless I was watching tv. In those cases I would either sit close to the tv or run upstairs and grab my glasses. That summer, I had a job at my local ice cream parlor, scooping cones. Every morning I would wake up, and head downstairs for breakfast, and eat with my family. Afterwards I would head upstairs get into my uniform and then head to the bathroom to put in my contacts. Then my parents would take me to work. 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teenager's perspective on glasses changes when he meets a girl who wears them.
 ---
-
 The convert.
 
 

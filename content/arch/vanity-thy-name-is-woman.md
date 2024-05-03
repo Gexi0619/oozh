@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Revolver's "Vanity, Thy Name Is Woman" delves into the sudden surge of business at an optical shop, leaving readers intrigued.
 ---
-
 Vanity, Thy Name Is Woman
 
 by Revolver

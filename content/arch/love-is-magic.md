@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A dropout from a school for wizards meets a witch facing expulsion for doing good deeds.
 ---
-
 I was just coasting along on my bicycle, keeping pace with traffic while waiting for my phone to ring with instructions for my next door-dash delivery order when I saw a shimmering of light on the sidewalk across the street from me. Now, the average person would not have realized what the shimmering was, but since I had failed to complete my time at Wizards and Wands, the school for Wizards and Witches that I had attended until I flunked out 5 years ago, I was left with a limited ability to see into the world of magic, and I had to focus all of my senses on the shimmering object in order to see what was happening.
  
 As I focused a witch clearly came into focus, and I could tell that she was pulling a young boy, who appeared to have chased a ball into the busy street, away from the front of a large van. There was something out of place here. Witches were really not supposed to do good deeds. That was considered to be the job of Wizards. But recently the world of the occult had been turned upside down. I wasn’t the only youngster to flunk out of Wizards and Wands, and enrollment had been dropping so rapidly there was even some talk about closing the school, which was the last one still in existence. I had heard rumors that what would eventually happen would be that they would amalgamate with Goblin College, and the new school would be Witches, Wizards and Goblins Academy. But no matter, I was finished. I could see no future in going back, and neither did any of the other students that had also dropped out. There was no longer any money out there in being a Wizard, a Witch, or for that matter a Goblin - except maybe in the world of video gaming.

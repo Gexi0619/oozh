@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Triplets navigate a new optician's shop, only to uncover a surprising twist about their trusted eye doctor.
 ---
-
 My family knows me all too well.  Whenever I go shopping, I always seem to come home with something I didn’t go out to get.  Sometimes, I see a bargain which takes my fancy, and when I get home, I’ve totally forgotten to buy whatever it was that I went out to buy.  They’ve even taken to giving me shopping lists, so that we actually have some spaghetti to go with our Bolognese when it’s my turn to go to the supermarket.
  
 So what could possibly happen on a trip to the optician’s?

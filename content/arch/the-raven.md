@@ -7,14 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Girls with glasses on tennis campus.
 ---
-
---------------
-The Raven 
---------------
- 
 1. Hold the Thin End
 
 I remember the first time I saw Susan Rogers, otherwise known as Raven Rogers or simply "the Raven": such a nickname was apt because she had long black hair, but also her tennis skills, which enabled her to beat anyone else quite easily. She was a tall young woman of nearly sixteen at that time, slim, tall and long-legged. And there she was, walking onto the grass to play another final; her lithe, graceful gait took her over to the baseline. She was dressed in tennis whites: you know those light polo shirts and little miniskirts. But that wasn't the best bit: as Susan looked at the crowd and smiled gently, I could see the light glancing off her round metal-framed glasses, and her heavily corrected eyes confined within the thick lenses they thus contained. I could see she had pretty poor vision, that was obvious; something like minus 13 or 14. It didn't seem to bother her though, and certainly did not stop her demolishing her opponent, who suffered badly at the hands of the all-conquering Susan.

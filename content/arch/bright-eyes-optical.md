@@ -7,11 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Optometry student desperate for work finds opportunity in a run-down shop with hidden potential.
 ---
-
- My name is James Bright,
+My name is James Bright,
 
 I'm just finishing my four years at university studying to be an Optometrist.
 I had hoped to extend my study by an extra year to specialise in low vision,but my finances would not allow that.

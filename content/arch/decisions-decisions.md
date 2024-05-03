@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl embraces her glasses, feeling special and grown-up, but discovers the reality of her deteriorating vision.
 ---
-
 I first starting wearing glasses when I was seven years old.  My mother wore glasses, so she made sure that she had our eyes checked every year, from the age of four upwards.  By “we”, I mean me, and my younger brother, James.  I’d just about reached the point where I had noticed that my mother wore glasses and, as young girls often do, I wanted to be like her.  Nevertheless, we were both surprised when we were told that I was becoming short-sighted, and would need to get my first pair of glasses, which I would need to wear all the time.
  
 Secretly, I was delighted.  I was just about to start Junior School  (it’s now called year 3), and I would be one of only three or four glasses-wearers of my age.  I had been told that it was important that I wear them all the time – especially as it was less likely I would sit on them and break them that way.  In point of fact, they made me feel much more grown-up, as lots of adults wore glasses, but not many children did.  However, I was a little surprised that, when I tried my mum’s glasses on, I wasn’t able to see very well with them.  She kindly explained that glasses came in all sorts of different strengths, and that mine would be much weaker than hers.  She hoped I would never need to wear glasses anywhere near as strong as hers, but, as she was 12 when she got her first pair, it might happen one day.

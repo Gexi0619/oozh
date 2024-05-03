@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Mr. Smith seeks help from Dr. Abrams for his fetish of being attracted to nearsighted women.
 ---
-
 "Tell me more about this fetish of yours Mr. Smith." Dr. Abrams said.
 
 "Well doctor, for as long as I can remember I have been attracted to nearsighted ladies." I answered.

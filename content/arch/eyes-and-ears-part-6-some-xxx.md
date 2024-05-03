@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two girls with glasses and hearing aids embark on a journey of self-discovery and forbidden love.
 ---
-
 Part 6 some xxx
 
 

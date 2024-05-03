@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In Part 3, Kelley receives an exciting job offer from Kim and they officially become a couple. They also discover a new customer base at a gay establishment.
 ---
-
 What is wrong with me, I like to wear strong glasses.
 Part 3
 

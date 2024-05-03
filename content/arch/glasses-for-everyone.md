@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Detective Jack Nugent investigates a scientist's mysterious suicide in a world of genetic engineering and inequality.
 ---
-
 The rain lashed the windscreen of Jack Nugent's standard issue Tesla self-drive utility vehicle. They could make a car go 1,500 miles on a single charge, but hadn’t invented a better way of keeping the windscreen clear when it rains than a moving rubberised stick back and forth.
 
 The rain muddied the view from the front seat, the colour palette of modern Britain was a muted affair, the long-promised global warming had rendered the UK a concrete swamp. It could be worse, much of the mid-west of the US had long-since been abandoned after the economics of fifty years of austerity and climate change had allowed the inevitable march of desert to consume depressed conurbation after depressed conurbation.

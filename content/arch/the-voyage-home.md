@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a world of blurred vision and silent sounds, Sara embarks on a life-changing journey.
 ---
-
 ------------------------  
 The Voyage Home  
 ------------------------  

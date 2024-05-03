@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter with a genie grants three wishes, leading to a lifetime of wealth and extraordinary vision.
 ---
-
 Fantasia ©
 As observed by Genie #3
 

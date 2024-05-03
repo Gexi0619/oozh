@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A shocking revelation leads two girls to uncover their true family connection in the face of terminal illness.
 ---
-
- 
 Ben had suggested marriage at least once. I liked Ben a lot, but Bailey was almost like a sister to me, and I knew that Mildred was deteriorating both mentally and physically. I didn’t feel right leaving Bailey alone with Mildred. I told Ben that I needed to wait until Bailey was 18, which would be in less than 2 years. Then, if Mildred wanted to go to assisted living, she could sell the house and Bailey could be on her own. Bailey was a very attractive young lady, and I knew she would probably have a couple of marriage proposals by the time she was 18.
  
 A few weeks later Mildred was having a really good day and she asked both Bailey and I to come and sit in the living room with her. She was now almost 80 and was becoming frailer every week. We were both afraid that Mildred might not make it to Bailey’s 18th birthday.

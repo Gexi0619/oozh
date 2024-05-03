@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two roommates become fast friends and join a marathon club, navigating university life together.
 ---
-
 “This is it,” Katy thought to herself.   “Room 517.   Now, do I knock, or do I use the key?”   In the end, she decided to do both, so that when she opened the door, the room’s other occupant was halfway across the room and coming to meet her.
 “Hello, I’m Katy.   You must be Samantha.”
 “That’s right, although only my grandparents call me Samantha.   Everyone else calls me Sam.   I was beginning to think you weren’t coming, and I’d got this room to myself for the year.”

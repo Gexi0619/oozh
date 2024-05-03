@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Sadie, a 16-year-old girl, strives to meet guys' expectations and begins wearing glasses to fit in.
 ---
-
 Now, I have the right look, I am, a glasses wearing girl.
 
 

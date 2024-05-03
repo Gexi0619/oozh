@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a suburban town, young Amy discovers the allure of glasses when her friend gets a pair.
 ---
-
 I am Amy, 12 years old , have dark blond hair with a bit of curl. I am tall for my age, still growing and tarting to notice some changes in my body.My dad has a good job , and my mother stays at home to look after me and my 2 younger brothers.
 We live in town, in a newer subdivision and I love our house and my nice bedroom.
 I always walk to school with my best friend Sandy, she lives next door. Sandy is a very pleasant girl, she has dark hair , she is a bit of a tom boy , and lots of fun. We are in the same class at school.

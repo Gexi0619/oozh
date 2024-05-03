@@ -7,11 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In "Finding Me Part 6," Jill receives glasses, finds love, and Amber discovers her unique eye prescription.
 ---
-
- FINDING ME PART 6
+FINDING ME PART 6
 
 2 days later the door light flashed ,when I opened it Jill was standing there smiling,it seemed strange to see her wearing my old blue NHS reading glasses,and she had dyed her hair blue, they seemed to suit her and the hippy clothes she was wearing she gave me a big hug and a kiss.
 

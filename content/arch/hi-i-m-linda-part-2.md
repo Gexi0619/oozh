@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: After a sleepless night and a series of headaches, Linda meets Rich for coffee, only to be caught by her partner Jane, leading to a tumultuous dream.
 ---
-
 Please make sure you have read “Hi – I’m Linda” Part 1 before reading this.
 
 Linda didn’t sleep at all well that night. She was exhausted, but too tired to sleep, and on top of everything else, she had the mother and father of all headaches from trying to see without glasses for 3 days. She got up at 3 am and took another 2 paracetamols, her third lot that day, and went back to bed. She eventually fell asleep listening to her MP3 player to take her mind off everything. Then she had the mother and father of all dreams.

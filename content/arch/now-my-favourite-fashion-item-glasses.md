@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Bored high school girls realize the beauty of glasses and learn to embrace their own unique features.
 ---
-
 Now, my favourite fashion item, GLASSES
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A mysterious encounter at a small village pub leads to a fateful car ride with a peculiar woman.
 ---
-
 ------------------------------------
 Be Careful Who You Pick Up
 ------------------------------------

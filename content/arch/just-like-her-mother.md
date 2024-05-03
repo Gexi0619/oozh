@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young man becomes infatuated with a girl's mother solely because of her glasses.
 ---
-
 Back in the days when I was a cocky young kid of 17 I used to hang around the record store at the local mall with some of my buddies.  One Saturday morning as I was walking towards the record store I saw a girl who I was fairly sure went to my high school, although she was in grade 10 while I was in 11.  I didn’t know her by name or anything about her but had seen her around school just often enough to know she looked familiar. When I looked at her with her mom I found that my heart was racing and I was immediately infatuated. But my infatuation was not with the young lady.  My attention was focused on the mother.  Even though I could tell that her mother looked quite young I realized that there would never be any chance for me to get to first base with her. But the mother was exactly the lady I was searching for in my life.
 
 You might ask just what it was about the mother that made her so desirable to me. She was very attractive, with long blond hair hanging down over her shoulders.  Her cleavage was quite substantial, although not excessive.  Like her daughter she was reasonably tall and quite slim and trim, and she fit into her jeans like she was poured into them.  But none of that mattered to me. What intrigued and infatuated me was the pair of glasses she wore on her face.  I don’t know what is wrong with me, but ever since I was a small boy women with glasses have attracted me like bees to a flower.  I have never, and will never reveal this to anyone, but I can not deny that the glasses that this lady wore were about the most perfect pair of glasses I had ever seen.  I knew that she was extremely nearsighted because of the way things looked much smaller when viewed through the lenses of her glasses.  And I could tell from the fact that part of her prescription was ground into the front of her lenses, along with the amount of lens that was showing behind the frame of her glasses that this was a pretty substantial prescription.  Possibly, to someone who didn’t like strong minus glasses, the glasses she wore could be viewed as being disfiguring on the pretty face of such an attractive lady, but to me they enhanced her beauty beyond belief.

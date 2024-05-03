@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this gripping tale, fraternal twins Clint and Donna's lives take a dark turn when Donna is abducted, setting off a thrilling investigation.
 ---
-
 This story is fantasy but I do take some ideas from true crime shows such as the ones of Investigation Discovery channel.
 In mid may of this year 18 year old fraternal twins Donna and Clint were  done with their senior year of high school and both were planning on going to college. Dad John is the general manager of as the game shows would say a major engine and transmission remanufacturing plant in town. Mom Eunice two resumed practicing law after stopping to raise her kids. Eunice only resumed practicing law once her only two kids were 16 and not from needing money. In addition to John's good salary they had inherited some money from her family setting up trust funds for the kids and paying in advance for their college education.
 Clint and Donna are like a lot of fraternal twins being mirror images of each other. Two examples are Clint is left handed while Donna is right handed. Donna is slightly Hyperopic and only wears her glasses while on the computer or reading. Clint is moderately Myopic and wears his -2.50 and- 2.75 glasses full time. Clint does have contacts which he wears rarely despite the fact his Mom prefers him in them. The only reason Clint got contacts is being tall for his age he played basketball on the freshman team. Clint who didn't get much playing time decided not play ball after that year but at his Mom's insistence gets new contacts at every eye exam.

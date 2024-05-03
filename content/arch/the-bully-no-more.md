@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Andy, a handsome and talented high school football player, faces setbacks and learns valuable life lessons.
 ---
-
 The Bully, –---------no more!
 
 A requested story.

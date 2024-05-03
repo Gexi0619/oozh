@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this unexpected tale, Amy finds love and acceptance through her journey of embracing her glasses.
 ---
-
 Life is full of surprises!
 
 My parents wear glasses, my older sister and brothers wear glasses

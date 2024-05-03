@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "The Strabismus Institute: Part 7 - The MRI. A weekend of misery leads to a nerve-wracking trip for an MRI."
 ---
-
 The Strabismus Institute
 
 Part 7 - The MRI

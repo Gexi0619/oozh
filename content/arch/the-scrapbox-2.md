@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teenager becomes addicted to a pair of glasses that enhance his vision, but fears the consequences.
 ---
-
 The aching was a strange and new sensation like a light burning pain. This worried me and I thought about Ritas admontion not to make stupid things with her glasses. Should I just take the glasses off and send them back to Laura and put an end to my new discovered fervor. 
 I went out into the garden to calm my thoughts chaos down and looked at the nightsky. I was overwhelmed of an incredible clear starlit blackness. I thought that I never before saw the beauty of the cope above so crystalclear. The aching faded and I knew I wanted to keep on wearing these glasses as long as possible and for the first time I had the thought  to do this permanently.
 I read long in bed, because I didn’t like the idea of taking off the glasses. Finally I fell asleep with the glasses on. I didn’t know how long I had slept, when I woke up by the still switched on light. When opening my eyes I didn`t know on instance that I still wore glasses and was worried why everything around was in a distorted blur. It took only a minute and my eys started to come into focus again. This meant to me, that my eyes must have learned to adjust to the glasses as soon as they had  them in front. I took the glasses off, placed them carefully on the desk and  shut down the light.

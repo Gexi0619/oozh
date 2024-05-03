@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In Chapter 1 of "Narration of Emery," the main character, Emery, becomes intrigued by the seemingly basic yet attractive Chad. After they are placed together in a math class and bond over their shared struggle to see the board, Chad's need for glasses is exposed, threatening his popular image.
 ---
-
 Narration of Emery
 
 Chapter 1

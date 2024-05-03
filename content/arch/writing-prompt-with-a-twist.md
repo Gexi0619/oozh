@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Paul's secret collection of prescription glasses is discovered by his new neighbor, leading to an unexpected connection.
 ---
-
 My name is Paul,I'm 25 years old,I have had many girlfriends but never dated them for more than a few months.
 Deep down I knew the sort of girl I wanted but was too shy to tell any of them” 
 Today my new neighbour popped in to see me and introduce herself

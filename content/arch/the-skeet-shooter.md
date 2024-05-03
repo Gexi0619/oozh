@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "From underdog to champion, Perry's unexpected journey proves that vision is the key to his success."
 ---
-
 Now 16 year old  Perry who will turn 17 this summer comes from a family who though his Dad or Mom are interested in hunting enjoy target and skeet shooting. The skeet shooting range has a contest divided by age groups every year and the youngest a kid can be is in their 13th year. Kids past their 12th birthday can compete in the 13-14 age group. 
 Perry was only a few days past his 12th birthday the first time he was able to enter the contest. One of the biggest upsets in the long history of the contest happened when Perry beat all the 13 and 14 year olds. Perry repeated the next year and pulled the biggest upset winning overall against all age groups.
 Perry at age 14 repeated both his age and overall championships. Note due to when his birthday and the contest fell Perry spent 3 years in the 13-14 age groups.

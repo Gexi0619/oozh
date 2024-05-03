@@ -7,14 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An oboe player becomes entranced by a fellow musician's thick lenses, leading to unexpected encounters and connections.
 ---
-
-------------------------
-Symphony of Sight
-------------------------
-
 I Adagio-Allegro ma non troppo
 
 I was new in town, so I thought I'd join the local amateur orchestra. I'm a decent oboe player, so I went along to hear them play: they were pretty good, but lacked a second oboe, so I offered my services. My first reason was because I loved playing my instrument; the second, and this was almost as good a reason, was that the first oboe was this young girl who was really pretty good, from what I could tell. But oh, she wore these amazing glasses, the sort you’d queue up to see if you were that way inclined. I watched her play from a distance, but I could see that her lenses were really thick, in frames that were squarish metal and not especially flattering in themselves. But those lenses were so darned... interesting! I wanted so much to sit with her, to watch her from close up... it felt so good to have such an opportunity. She must have been no more than eighteen. I met the conductor after their brief performance, then gave him a quick demonstration of my skills. He was impressed enough to offer me a place next to this girl! I thanked whatever lucky stars shine on me and went home.

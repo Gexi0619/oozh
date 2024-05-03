@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Yuko, a high-class escort, navigates her mysterious profession until she receives a peculiar package that changes everything.
 ---
-
 Dear Forum,
 today I would like to present another short story from my pen.
 Before that, however, once again the, how shall I put it, security note: 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Twin siblings Kelley and Corey move to a new city, make friends, and find unexpected connections.
 ---
-
 Kelley and Corey are 17 year old twins , they will be going into their last year of high school.
  Kelley is a beautiful blonde, well developed sturdy athletic girl , who loves sports.
 Corey is a well build , very handsome boy , who plays baseball, football and in the winter ice hockey.

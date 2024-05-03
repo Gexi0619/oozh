@@ -7,10 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A couple's innocent fascination with glasses spirals into obsession, as secrets and desires emerge in their neighborhood."
+word_count: 1854
 ---
-
 My wife Katie and I, Logan have now moved into our new house.
 We are college sweethearts, married 2 years ago and we are looking forward to starting a family.
 My wife has a good figure, beautiful head of hair, very nice facial features, and large blue eyes.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Sibling rivalry sparks a plan to get glasses for sister, leading to unexpected revelations about their prescriptions.
 ---
-
 When both of your parents wear glasses, you grow up expecting that one day, you will have to wear glasses, too.  My mum always made sure that both I, and my younger sister, Cheryl, had our eyes tested every year.  The optician always made sure that the eye tests were quite good fun and, up until I was nine years old, we both passed with flying colours.
  
 When I was nine, my Mum was told that I was beginning to show signs of becoming short-sighted, like her, but that my prescription was minimal, so they didn’t need to do anything about it at this stage.  I was told that I might well need glasses next year, but that I should come back sooner if I started to have trouble seeing things.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A nearsighted wife's escalating prescription leads her husband to question their daughter's future in this myopic family.
 ---
-
 When I married it was no surprise that my wife Alicia was a nearsighted woman. Her myopia was not as high as I would have liked it to be, as I rather preferred the girls who wore thicker glasses. But I was smart enough to realize that Alicia stroked the fires in other ways, and as long as she wore her glasses once in a while, I knew this would satisfy me.
  
 Before we had any children, I always made sure that Alicia had yearly eye exams, and her new glasses were as stylish and as thin lensed as we could afford. After 5 years, when Alicia took a year off teaching to have our first child, Annalee, her prescription was a respectable -7.25D, a slight, but not remarkable, increase from the -5.75D she had when we were married. The year she was home, after she finished breast feeding Annalee, brought about another slight increase, and now her latest glasses were right at -8.00D while her new contact lenses were -7.50D. This was in 2001, and the most cost-effective plastic lenses were what was called 1.67 index. Her new glasses looked to be about the same thickness as the lenses that were in her old -5.75D glasses that she wore when we were first married.

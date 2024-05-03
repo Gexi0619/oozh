@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two strangers navigate their insecurities and attraction through glasses, revealing hidden vulnerabilities in their lives.
 ---
-
 She:  My life isn't turning out as I'd hoped.  I'm a mess of unwanted juxtapositions.   My hair is limp in some places and unexpectedly wavy in others.  I’m skinny but I’m fat.  I achieve high scores on standardized tests but my class grades yield only average marks. I seemingly have the demeanor of a confident outgoing person but I’m actually painfully introverted.  I’m pale even on the rare occasion I’m tan.  Clumsy but well coordinated.  I’ve been told that my big blue eyes are my best feature but when they are behind my glasses they become tiny and insignificant.
 
 He:  She transfixes me.  I can’t summon the courage to speak to her.  I attempt to avert my eyes but can’t stop them being drawn back to follow her as she moves through the registration queues.  My legs unconsciously carry me to be close to her, behind her, beside her, but from a respectable distance.  I simultaneously hope she doesn’t notice me while longing that she might.   I revel in the inner feelings that her appearance generates in me, but loathe that a significant portion of my attraction to her is that she obviously has poor eyesight.

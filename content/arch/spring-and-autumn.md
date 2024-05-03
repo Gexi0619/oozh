@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A tale of a stubborn father, a nearsighted daughter, and the challenges they face in their relationship.
 ---
-
 Earl Spring was probably one of the meanest, most miserable men I ever knew.  And you ask how did I know him, and why was I associated with him?  He didn’t seem like such a crotchety old man when I married his daughter April, but I should have known from the way he treated April that he was a stubborn, opinionated, nasty SOB.
 
 Back through public and high school I was in the same grade as April and May Spring. Earl must have had a sense of humor at one time, because April and May were twins, but April was born at 11:56 on April 30th, and May was born at 12:02 on May 1st. He must have thought it was a real hoot to call the twins April and May. Then the following year on June 20th he and his wife Autumn had their third girl, who they named June. April, May and June were all born in the spring so I speculate that it was a big joke to him to have the Spring girls all born in the spring.  And maybe he had even found it a little humorous when he married a girl named Autumn and her name became Autumn Spring.

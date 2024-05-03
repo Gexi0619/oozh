@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Carla awaits the end of a boring evening, eager to remove her contacts and put on her glasses.
 ---
-
 Carla was sitting at a table in the meeting hall with a number of other ladies that were going to receive their awards plaques at this evening’s presentation.  The chicken dinner had been excellent and the check that Carla was about to receive with her award was going to come in handy to help pay for some of her expenses.  But the man in charge of the direct marketing firm that Cara was working for had been at the podium for a little past his “best by” expiry date from the looks of the bored expressions on all the faces around her.
 
 Carla couldn’t help but let her mind wander back to the day that she had answered an ad for a direct marketing representative for the Concentric Group.  She had not known who they were or what they did; however once she investigated she discovered that many of the product lines that were sold through home marketing parties were familiar names to her. She had just graduated from high school, but even though she had high marks in her college admission tests she didn’t have the necessary funds to go on to university and the commissions that she could earn by selling the Concentric Groups products looked to be sufficient to allow Carla to earn a decent living. 

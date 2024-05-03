@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: April, a talented athlete, discovers a shocking truth about her eyesight that turns her world upside down.
 ---
-
 My Name is April I'm 25 years old, I was born in 1940 in the south of England, My father was a gamekeeper on a big estate I learnt to shoot when I was 10 years old, I was a crack shot, I could spot the birds before most of the others,when I was 15 I won the under 18s British clay pigeon championship, most of the other competitors were jealous of my sharp eyesight,
 
 When I was 18 I started university,I loved all sports and had gained a sponsorship,

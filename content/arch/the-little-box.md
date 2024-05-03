@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A young boy's discovery of a mysterious box leads to a newfound confidence and enhanced vision."
 ---
-
 The little box
 
 

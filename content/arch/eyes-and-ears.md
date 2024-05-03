@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young woman from Brazil with undiagnosed myopia seeks help from an empathetic optometrist in England.
 ---
-
 I qualified as optometrist about 5 years ago,then decided to train as a audiologist before starting my own business 3years later, last month I was very lucky to get a contract with a professional employment agency to check applicants vision and hearing as part of their medical before being shortlisted for work applications.
 I normally save Tuesday and Thursday pm for clients sent by the employment agent.
 I had just got back from lunch when my receptiones rang me to say a Ms Johnson had arrived for her examination.

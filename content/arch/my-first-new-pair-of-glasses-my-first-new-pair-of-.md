@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the fascination of a young girl with glasses as she longs to wear them and feel beautiful.
 ---
-
 My name is Ashley, I am 7 years old, and in grade 2.
 I love the looks of eyeglasses very much.
 My mother wears glasses , she looks so nice , her lenses seem to sparkle .

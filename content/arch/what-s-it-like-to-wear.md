@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's perspective on glasses shifts when she tries them on and sees herself differently.
 ---
-
 Glasses are for people who can’t see very well, aren’t they?  After all, if they could see well, they wouldn’t wear them.  That was how I grew up feeling about glasses.  I could see well, so I didn’t need them.  When my parents asked if I could see well at school, it almost sounded like a stupid question to me, because if I couldn’t, I’d have been wearing glasses.
  
 Glasses were something other people wore.  Like my sister, Amelia.  She was four years older than me, and had been wearing glasses since before I was born.  I only know that, because even the photos of the two of us together, when I was a baby, show her wearing glasses.  I had never asked her why she wore them – I just accepted that she did, and that she couldn’t see very well without them.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl discovers her own myopia and becomes enamored with wearing glasses, even trying higher prescriptions.
 ---
-
 I am not myopic anymore.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "An American ophthalmologist in Mexico discovers a beautiful woman seeking eye surgery for her unusual obsession."
 ---
-
 My name is Juan Ramirez and I am an ophthalmologist in a good sized city on the west coast of Mexico. I do quite a good business doing cataract surgery and occasionally I do ICL surgery for the few select people who can afford it.  I am also known as one of the best people to see if you have retinal problems. For this area of the country I make a darned good living – nowhere near what I could make in the USA, but my needs are not nearly as great as those of an American Doctor.
 
 The interesting thing is that I am an American.  My parents didn’t enter the USA in the prescribed manner before I was born and when Immigration caught up with them and returned them to Mexico I was 2 years old and had my birth certificate stating that I was born a US citizen.  At age 2 however, there was no way that I could remain in the states without my parents.  When I graduated from high school with honors and wanted to attend medical school my US citizenship opened a lot of doors to me and I was able to do my medical training at one of the best known schools in the USA.  After I graduated I could easily have stayed in the US, but my parents were getting on in age and I felt that I should stay in the general vicinity of where they lived.

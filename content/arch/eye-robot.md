@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "In a war-torn future, a farmer seeks a replacement for his fallen farmhand, leading him to a mysterious robot seller."
 ---
-
 -------------
 Eye Robot
 -------------

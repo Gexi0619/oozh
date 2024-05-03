@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Friendship, future dreams, and unexpected glasses bring a young athlete new perspectives on life.
 ---
-
 Now, I can t wait for my next eye exam!
 
 

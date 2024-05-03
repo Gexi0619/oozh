@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Teenager moves to a new city, discovers old glasses that improve his vision and change his life.
 ---
-
 I lost the girl of my dreams.
 
 

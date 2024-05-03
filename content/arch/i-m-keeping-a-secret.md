@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A lifelong obsession with glasses leads to a girl's quest to induce her own myopia.
 ---
-
-                                  
 I first met Jacob in play school, and then when I went into kindergarten he was in my class. Jacob was the first, although not the last, of my classmates that wore glasses because at the age of 4 when we were in play group Jacob already wore glasses. I don’t know why I found Jacob’s glasses so intriguing. Maybe it was just because it was unusual to see a young child wearing glasses. I am pretty sure that my attraction towards Jacob’s glasses was what started me off on a lifelong obsession towards glasses.
  
 Jacob and I were friends for all of our public-school days and by the time we were in grade 6 the lenses in his glasses had gotten much thicker. Back in grade 1 he would take off his glasses and let me try them on. I could actually see fairly well when I looked through his lenses.  By grade 6 however his newest pair of glasses were strong enough that I could no longer force my eyes to see clearly through them. We were both 11 in grade 6 and my obsession towards glasses was so strong that I had talked Jacob into bringing me one of his old pairs of glasses to school and letting me wear them at home sometimes. When he got his newest glasses, Jacob let me keep the pair of glasses that was weak enough for me to see through because, as he said, he could no longer see well enough to use them. I think the truth of the matter was that I was the only one in our class to be a real friend to Jacob. He was not disliked or anything, it was just that I was his closest friend and confident.

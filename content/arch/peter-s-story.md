@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: The inspiring journey of Peter, a special needs teacher who overcame obstacles and found success.
 ---
-
 Peter is now a semi retired special needs teacher but as the late great Paul Harvey said so many times over the years the rest of the story.
 Peter was born in 1964 in Pikeville Kentucky in an area noted for coal mining. Peter's Dad was a coal miner until shortly after he was born and then went to work in manufacturing due to concern about coal dust.
 Peter started 1st grade in 1970 and it seemed he was a little slow with the now non PC word retarded being used. As school went on Peter was bullied by classmates calling him dumb and as kids then and now can be cruel. Due to his Dad not making the money he did in coal mining the family could not afford the extenisve testing. As school went on in 3rd grade Peter got a bit of a break when a special class was started for special needs students so the bullying while not completely stopping slowed way down.

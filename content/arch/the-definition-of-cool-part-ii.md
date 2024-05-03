@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Sarah strives to redefine herself, navigating self-doubt, relationships, and the pursuit of personal style.
 ---
-
 Sarah’s Story – Designs on Life
 
 (A follow on to “The Definition of Cool”)

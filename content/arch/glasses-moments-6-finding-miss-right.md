@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man falls in love with a co-worker, only to discover her secret struggle with glasses and poor eyesight.
 ---
-
 This true story features the beautiful myopic girl who was to become my wife.
 
 After a string of various girlfriends over the years, some of them GWGs, some not, I finally met “The One”. She was right under my nose all the time in my work place, but I had a thing about not dating girls I worked beside or from the same company. It was a recipe for disaster if it ever went sour, so I kept my distance and admired Lynne from afar. But every time I saw her, my heart did double back-flips and I knew she was the one. There was only one drawback – she didn’t wear glasses, but what the heck! She was a dead ringer for my idol at that time, Karen Carpenter, and the likeness was uncanny.

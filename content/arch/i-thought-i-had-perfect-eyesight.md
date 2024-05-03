@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Jennifer's descent into temptation leads to unexpected consequences, forcing her to confront her own eyesight."
 ---
-
 My name is Jennifer. My story starts just before my 16th birthday.
 
 After school my friend talked me into going to a hideaway that a lot of the girls had built in the woods.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the shocking lengths a man goes to transform his wife's appearance through a secret obsession.
 ---
-
 WHY MY WIFE NOW WEARS GLASSES 
 
 I have been happily married for 7 years now,we were both 18 when we married.  

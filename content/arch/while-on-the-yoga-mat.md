@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman with poor eyesight struggles with her appearance until a stranger sees past her glasses.
 ---
-
 I recently found buried in some old data files this GWG story I started many years back. I'm just gonna paste it here in it's unfinished state:
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Bruno's journey takes an unexpected turn when he becomes a gardener for a professor in Paris, wearing her prescription sunglasses.
 ---
-
 My name is Bruno. 25 years ago I was a lone traveler 19 years old, trying to explore the world. Before starting to travel I had worked 2 years as a gardener in a small gardening company and saved money for my time on th roads and rails. While strolling through Europe I came to the Greek island of Chios in September, where I met 2 friendly ladies, that spend their holiday there. They came from Paris and had jobs as professors at the Sorbonne university in Paris. We met every day for a week, spending a lot of time on the beach and having extended suppers in the taverns. We talked a lot though my french wasn’t all that good and their English as well.
 One of them Helene told me, that she lived in an old house outside the city, that she had inherited from her grandparents. This house had a big garden that she was unable to maintain without help, so she invited me, that if I needed a job for some time, she would be glad to employ me as a gardener for as long as I liked to. “Well if you pass by in Paris, we would be glad to see you and maybe you take care of the garden” they said, when we parted.
 6 months later in late March after stays in the Middle East and Africa I came back to Europe through Mauretania and Marocco, passed through Spain and arrived in Paris by the end of March.

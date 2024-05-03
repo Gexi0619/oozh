@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Discover a potentially groundbreaking 3D printing method that may revolutionize the manufacturing process for ophthalmic lenses."
 ---
-
 Unfortunately, no Breakthrough yet, but some interesting possibilities.
 
 Back in 2013, I wrote a 7 part saga about an imaginary Strabismus Institute.  Unfortunately, I did not heed Specs4ever's valuable caution about writing and editing the whole story, before publishing any of it. I ran out of ideas about how to end the story.  Several people, including me, felt the ending was not very satisfying.

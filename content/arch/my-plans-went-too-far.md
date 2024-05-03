@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A child's fascination with glasses leads to a secret obsession, longing for their own pair.
 ---
-
-                         
- My attraction towards people who wear glasses probably began when I was around 3 years old.  My cousin Vanessa was the daughter of my father’s sister and she had been born a little prematurely, which supposedly led to her being very nearsighted and having to wear glasses from an early age. My first memories reach back to around the time I was 3 and Vanessa was 6 and I know I was very curious as to why Vanessa always had to have her glasses on. Our parents frequently spent a lot of time together and it was only natural that Vanessa and I would be left to play together.  I enjoyed playing with Vanessa, but I seem to remember feeling that Vanessa was not always pleased to have to ensure that I was kept occupied.
+My attraction towards people who wear glasses probably began when I was around 3 years old.  My cousin Vanessa was the daughter of my father’s sister and she had been born a little prematurely, which supposedly led to her being very nearsighted and having to wear glasses from an early age. My first memories reach back to around the time I was 3 and Vanessa was 6 and I know I was very curious as to why Vanessa always had to have her glasses on. Our parents frequently spent a lot of time together and it was only natural that Vanessa and I would be left to play together.  I enjoyed playing with Vanessa, but I seem to remember feeling that Vanessa was not always pleased to have to ensure that I was kept occupied.
  
 After leaving Uncle Jim and Aunt Pat’s place there was always a bit of a discussion between my mom and dad about poor Vanessa and about the fact that she was essentially blind without the strong glasses that she had to wear. I had never noticed that Vanessa had any problem with seeing things when she had her glasses on, and I think that my mind led me to believe that as long as Vanessa could see as well as she seemed to be able to while wearing her glasses there really was no problem and there was no reason to call her poor Vanessa. To me that also meant that there was not really a problem with anyone having to wear glasses as thick as Vanessa’s were.
  

@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A grieving widow reluctantly joins a support group and navigates the complexities of love and loss.
 ---
-
-                                     
- Originally I had resisted going to the weekly meetings my friend Jan had suggested that I should try to attend.  I certainly was not looking to “hook up” with anyone as I was still reeling from the shock of losing my husband of almost 40 years from a rather fast acting case of pancreatic cancer.  From the time Mike was diagnosed until the day he died we only had 6 months to settle our affairs, and the last 3 months of his life absolutely drained me as I watched this once strong and proud man wither away to a shadow of his former self. When the end came and he slipped away, finally free of the pain that had wracked his body for the past 6 months I felt relief that he had died, but the tears still streamed down my cheeks as the realization came to me that I was now a widow. 
+Originally I had resisted going to the weekly meetings my friend Jan had suggested that I should try to attend.  I certainly was not looking to “hook up” with anyone as I was still reeling from the shock of losing my husband of almost 40 years from a rather fast acting case of pancreatic cancer.  From the time Mike was diagnosed until the day he died we only had 6 months to settle our affairs, and the last 3 months of his life absolutely drained me as I watched this once strong and proud man wither away to a shadow of his former self. When the end came and he slipped away, finally free of the pain that had wracked his body for the past 6 months I felt relief that he had died, but the tears still streamed down my cheeks as the realization came to me that I was now a widow. 
  
 “Adults without Partners” was the name of the group that Jan had suggested I should give it a try to attend their meetings. One of her other friends had been going to these meetings for about a year since the death of her husband, and although I didn’t know Lucy I accepted that she had probably been helped by the group.  I just wasn’t ready, and I felt I had my own support group as our 3 children and 2 grandkids were helping me keep busy and keep my mind off the loss of Mike.  But gradually I began to realize that the kids had their own lives to live and I was going to have to develop some interests in my life that did not involve them.
  

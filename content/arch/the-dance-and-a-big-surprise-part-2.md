@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Friends Ann and Kelley discover the world of glasses, leading to surprising revelations and new perspectives.
 ---
-
 Kelley, Ann, and Kathy were studying hard for the final exams of the school year.Due to all the studying , Ann was having more headaches lately. When she talked to Kathy and told her about the headaches, Kathy suggested she should have an eye exam, she might need an increase in her prescription.   Here try my glasses they are stronger than yours. So Ann tried them on and noticed a big difference. I guess you are right , I notice a big difference, I can  see much better wearing your glasses.
 Ann made an eye appointment for the following Saturday.
 When Kelley found out that Ann had an eye appointment , asked if she could come and help Ann select a new frame., Ann thought that was a great idea.

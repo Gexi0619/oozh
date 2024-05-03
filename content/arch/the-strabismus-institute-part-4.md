@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Experience the complex world of eye positioning systems and the confidence to wear high-prism glasses in public.
 ---
-
 The Strabismus Institute
 
 Part 4 - Another Test, continued

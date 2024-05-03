@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Annie's life is finally thriving after facing agoraphobia, but a buried secret threatens to destroy everything.
 ---
-
 [This is a stand alone story, also in the same universe as the others. It may be better enjoyed after reading "Stepping Out", however]
 
 1.

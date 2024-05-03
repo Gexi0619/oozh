@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young child's fascination with glasses leads to a surprising discovery about their own vision.
 ---
-
-                                     
 When I was 4 years old my cousin Grace, who was 8, got her first pair of glasses.  I was fascinated by the way they changed her appearance, and it was intriguing to me to look through the sides of them from behind to see how they made things appear smaller. Grace even let me put them on and see through the lenses one time, and I was very surprised that I could focus perfectly when I had them on. I remember that this made me think that if I could see so well when I was wearing them, maybe this meant that I might need glasses.
  
 I am pretty sure I was in kindergarten when Grace got her next new pair of glasses, so I was likely almost 6 years old. When she got her new glasses she also got a pair of sun glasses. She was over at our place one weekend with her mom and dad, and when she left she forgot her sun glasses which I found and hid away. When my mom and dad asked me if I had seen Grace’s prescription sun glasses I told them that I hadn’t, and after that every chance I had I managed to wear them without getting caught. I just loved to have the prescription sunglasses on my face and I hoped that one day I could get a pair of glasses of my own.

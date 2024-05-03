@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's journey from blue light glasses to discovering the need for prescription glasses.
 ---
-
 The blue light glasses
 
 

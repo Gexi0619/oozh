@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kirsty's dream of ditching her glasses for contact lenses may finally come true, unlocking newfound confidence.
 ---
-
 -----------------
 Dear Diary III
 -----------------

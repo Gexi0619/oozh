@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a small town haunted by tragedy, Davey overcomes adversity and fights for a brighter future.
 ---
-
 Now 18 year old high school senior Davey lives in Williams Indiana. Davey was named after his Dad's favorite NASCAR driver Davey Allison who was tragically killed while attempting to land his new helicopter at the Tallageda Speedway in 1993. In fact Davey's middle name is Clifford after Davey's Brother who was killed in 1992 at the Michigan Speedway in practice for an ARCA race.
 Williams Indiana is a very small town in Lawrence county about 10 miles from Bedford and probably 30 miles from Bloomington. Williams sits directly on the White River and if you google the town I'm sure it will be noted there is a dam.
 Davey's Dad is now general manager at a large car dealership in Bedford but there are still some of his regular customers that will only buy their new cars from him. Tragically Davey's Mom and  1 year old Sister were killed in a car wreck on highway 37 between Mitchell and Bedford while returning home from a visit with her parents. Davey who was 6 at time having just started 1st grade was badly injured when a car that was under recall for a sticking throttle hit them. Davey missed that whole year of school so that is why he will be 19 before graduating high school not that he was held back a year as some people think. If you see the car which was a brand not from where Davey's Dad works you would wonder how anybody survived. Davey still has problems with his leg on rainy or damp days limping some.

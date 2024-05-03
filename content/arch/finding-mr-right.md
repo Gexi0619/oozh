@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this coming-of-age memoir, a young woman navigates life, love, and self-discovery through the lens of her glasses.
 ---
-
 It was only the second time since I had got my first pair of glasses some twelve or thirteen years earlier that I put them on before getting up.  I well remembered the first time.  I had been getting a number of headaches, so my mother took me off to the doctor’s.  Instead of prescribing me any special medicine, he had given me a referral note to the optician’s.  I think it surprised all of us when I was told that I needed glasses.  Neither of my parents wore them, and nor did either of my older siblings, Michael and Jenny.  I had been told that I needed them for reading, but if I wanted to wear them more often, it would not do me any harm.
  
 I had got out of bed, got dressed and then looked at my new image in the mirror.  It may just have been that I was not used to seeing myself in glasses, but to me, they looked a bit odd.  There was nothing special about the frames – brown plastic NHS glasses were extremely common in 1983.  Perhaps that was just it.  They were so common that I could name a dozen people in my classes at school who either wore them or their black counterparts.  And overnight, I had become one of them.  If I’m honest, the frames looked quite good on me, and I liked the way they made my eyes look a little larger, but when it came to putting on some eye-liner and mascara, I had to take them off.  When I put them back on again, I realised that they magnified the make-up as well as my eyes.  I didn’t really want to get in trouble for it, so the glasses went back into their case, and into my school bag.

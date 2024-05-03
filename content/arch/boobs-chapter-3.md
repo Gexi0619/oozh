@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In "Boobs chapter 3," Amber's life takes unexpected turns with vision problems, a surprise pregnancy, and a hidden fortune.
 ---
-
 Boobs chapter 3
 
 

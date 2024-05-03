@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In his decades on the road, a cattle hauler finds unexpected love at a remote commune.
 ---
-
-                                                    
 Been drivin now for near bouts 20 years. Been haulin cattle around most of the southern US now for nigh on 15 of them years.  Somewhere there is an old song, think it were sung by that there Johnny Cash that purty much describes it all. “I’ve travelled every road in this here land. I’ve been everywhere man, I’ve been everywhere man, crossed the deserts bare man. I’ve breathed the mountain air man. Travel I’ve had my share man.” Then the song goes on to talk about everywhere he has been, and there ain’t many places he talks about that I ain’t been.
  
 Started drivin when I was 18. Wern’t allowed to drive across state lines til I turned 21 so if’n you do the math you can figure out that I am hittin on 38.  Yep, I am single, or was until I delivered my last load of cows to what I suppose was what them there hippies in San Francisco would call a commune.  Not sure if’n them people were some religious group, like maybe Mennonites or maybe even a spinoff of one of them Mormon fundamentalist groups.  Anyways I found the turnoff from the main highway and headed into the back country down a real dusty gravel road that hadn’t seen no gravel or road grader for a long damn time.  Had to keep my speed down round bout 20 mph or this darned road would have shook my old Pete to kingdom come, and since this old girl is my only home, and my only way of makin a living I had to baby my girl.

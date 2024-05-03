@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Mary, a girl who learns to look after herself, discovers her own vision problem and helps a friend.
 ---
-
 Mary was the only girl in the family, she had 2 brothers who teased her  lot so  she learned to look after herself at an early age.
 She was 15 Years old , a good student well liked. She was a pretty girl with dark blond curly hair and developing a nice figure, She wore glasses for myopia. She started to wear glasses  when she was in grade 6, when she realized she had trouble seeing the blackboard.
 Jenny one of her class mates had just started to wear glasses, and when Mary tried them , she realized she needed glasses.

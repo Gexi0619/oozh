@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: broken, and she was devastated. As I hugged her, I knew our Christmas would never be the same.
 ---
-
 A Christmas story
 
 

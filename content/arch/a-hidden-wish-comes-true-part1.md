@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy's summer caretaking his aunt's house takes a turn when he finds her glasses.
 ---
-
 When I was a young boy of 7 years I spent some weeks staying at my aunt Claire mums younger sister because mum was ill and in hospital for some time.
 I don't remember very much of this time, but I enjoyed the time and the two of us had a lot of fun together. I remember one situation, when I asked Claire- she was wearing glasses constantly- to tell me what's it like to need to wear glasses. She could not explain this really good to me. So I asked her to let me try her glasses. She took them off and carefully placed them in my face. I ran to the bathroom mirror to see myself. I was able to see quite good through them, but quite different to my normal visual capacity. Though seeing not perfect with these glasses I liked my look with glasses. I went back to Clair and asked if I could keep on wearing them a bit. She didnt really agree but did not insist to get them back. So I kept on wearing them for quite a while going through Claires house and garden. Claire made a few lame attempts to make me give her the glasses back. But after about an hour she got a bit angry and determinant. So I gave them back. I never again had glasses in my hands and it was no theme for me any more after that.
 

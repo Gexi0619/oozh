@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man grapples with aging, glasses, and self-acceptance as he navigates life in a senior residence.
 ---
-
- 
 Darned mirrors are getting weird these day. I know I am getting older, but honestly, what I am seeing in mirrors can’t be a true reflection of my image.  The old guy looking back at me is definitely not someone I would recognize on the street. And every day there are more aches and pains. The friend I depend on the most these days is Ibi Profen, and I call on him maybe two or three times a day.
  
 I thought it was wonderful news when my eye doctor told me that I needed to have my cataract operated on. I guess I should have listened to the phrase he used a little closer because I didn’t realize that he was only going to do one eye. I begged and pleaded with him to leave me nearsighted in that eye. It took a lot of convincing but he finally agreed to do that since I had gone my whole life with monovision because I had always been a low minus in that one eye. I had originally been ecstatic because I had a friend that had managed to convince his doctor 10 years earlier that he worked on fine electronic parts for a living and his near point vision had more importance to him than his distance vision. He ended up convincing his doctor to operate on both eyes, 2 weeks apart and he has worn -10D glasses ever since. I suppose it helped that he was still working, that he actually did work in the electronic field, that his cataracts developed rather suddenly at an early age(he was 58 then), and that he had no medical insurance and was paying for everything out of his own pocket.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "University life brought challenges and new experiences, especially navigating a female-dominated environment, but one girl caught his attention."
 ---
-
 Going away to university was the best thing I ever did.  I learned far more in my first few weeks there than I had done in the previous four or five years at school: how to cook for myself; how to operate a washing machine; how to find my way around a completely alien environment.  I did, however, draw the line at working out how to do my own ironing.
  
 It was a culture shock in more ways than one.  I had gone from having everything done for me, to having to do everything for myself.  More than that, I had gone from an all boys’ school to an overwhelmingly female environment.  I had chosen to study French and German, so there were only five boys on my course of forty.  Before I had gone away, my only real contact with members of the opposite sex was with my mother and my sister (they didn’t count), and the occasional friend my sister brought home.  

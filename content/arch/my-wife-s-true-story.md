@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman shares her journey of accepting her need for glasses and the impact they had on her life.
 ---
-
 I haven't posted here for a while due to a major project taking up all of my time. That's a shame, as I love writing these stories. How about a real life one for a change.
 
 I had mentioned my wife before, who has recently had an eye test and is L -6.50, R -6.25. She wears varifocals, and has a separate pair of glasses for reading in bed L -3.25, R -3.00 so she doesn't damage her good ones when falling asleep! She knows of my fascination with glasses, and has always dismissed any co-operation on her part saying that she only regards them as a means of being able to see. However, I have now persuaded her to tell her own story in her own words, so here it is.

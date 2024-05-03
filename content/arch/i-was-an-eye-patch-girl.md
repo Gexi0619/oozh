@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's life is shaped by the necessity of wearing an eye patch and outdated glasses.
 ---
-
 WhenI was a year old One of my presents for my birthday was my first pair of glasses
 
 

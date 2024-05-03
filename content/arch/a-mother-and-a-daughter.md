@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A couple struggling with infertility adopts a visually impaired girl who instantly connects with them.
 ---
-
 Every time I had passed the open door on our second floor where out bedrooms were, I closed the door to the child’s bedroom. We had decorated it together about 10 years ago, but there had been no occupant yet and I just couldn’t stand to see the door to the empty room wide open. We were on our way out to the car and for a while after leaving home my wife had not said much to me. I knew that she was thinking about a lot of things, and while I had tried to initiate some conversation, she had pretty much let every topic I had brought up die a quick death. I knew better than to bring up the big issue, but it was like a ghost was in the back seat, sitting in the empty school age child’s car seat that was strapped in there. We had tried and tried since we were married to have children, but we had not been fortunate enough to have Kate get pregnant. We had both undergone testing, but the doctors could not find a definitive problem. I had been the one who wanted to adopt while Kate was willing to give it a little more time. However, at the age of 40 her best before date had come and I was afraid it had also gone.
  
 The GPS advised me to exit the Interstate and turn right. I drove along the street for a while and then I was told to make a left at the next intersection. Then I was told we were approaching our destination on the right. I pulled up in front of a fairly modest, well-kept house, parked and walked around to Kate’s door, which I opened and helped her out of the car. We walked up to the front door and I rang the bell. A lady about ten or so years older than me opened the door.

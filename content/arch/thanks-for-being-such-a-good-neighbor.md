@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A family's plans for spring break and eye exams are disrupted when schools and businesses shut down.
 ---
-
 That's what happens, when you have a good neighbor.
 
 Peace and quit, after seeing 3 children off to school, to catch the school bus, on time, now it is my time to relax

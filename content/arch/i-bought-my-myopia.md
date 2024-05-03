@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Becoming myopic was all I wanted, until I realized the consequences. Now, I can't see without glasses."
 ---
-
 I bought my myopia.
 
 

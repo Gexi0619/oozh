@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Trina's hope for new contacts is dashed when eye damage forces her to wear glasses instead.
 ---
-
 Trina went ahead and made appointments for myself and Karin at the eye doctor that she had gone to for years. It surprised me a little to find that she also made one for herself as well but I suspected that the reason for that was to see if she could get herself new contacts that she could wear.  Lana was back to wearing contacts a hundred percent of the time she was out in public. Every once in a while she would take her contacts out after the restaurant had closed for the evening and she would wear her glasses while we were cleaning up.  Libby had gone back to wearing her contacts in public about seventy five percent of the time and I figured that Trina was hoping to be able to find a new type of lens that she could wear that would be comfortable on her eyes. I felt that she had likely damaged her cornea from over wearing her old contacts and depending on the damage she had done it would not be easy for her to find contacts that would work for her. The appointments that Trina had arranged for the three of us were about two weeks away.
 
 By the time our appointments arrived I had been wearing the stronger and much thicker looking glasses all of the time for around 5 or 6 weeks.  Karin had been wearing her glasses from Pete’s discards for about 3 months now, and had not complained even once that she could not see properly wearing them. And Trina had not worn contacts for the same period of time that Karin had been wearing glasses.

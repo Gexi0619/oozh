@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In "Plain Jane No More" Part 6, Jane faces a dilemma when her friend Linda can't accompany her to a hospital appointment.
 ---
-
 Please make sure you have read “Plain Jane No More” Parts 1 – 5 before reading this.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Caught in a career dilemma, a recent graduate discovers a student with a hidden visual struggle."
 ---
-
 I was a pretty good student in both junior and senior high, and when I graduated, I went on to university to take a 4-year biology and science course. When I left university, I had no idea what I wanted to do, nor was I able to find a job in my field. I had student loans that needed to be paid, and I managed to get into a one-year teachers college course that would allow me to be a high school teacher.  Since I was still attending school, this put my student loan repayments on hold until after I graduated from teacher’s college and while I wasn’t that excited about becoming a schoolteacher, I really had to figure out something to do that would either put my loan repayments on hold again or I could borrow a little more money and continue my education.
  
 I did well in my courses and when we were sent out to do practice teaching, I ended up at Lincoln High for a 2-week stint in the classroom of the Biology and Chemistry teacher. The first day I stood in front of a classroom of grade 10 students found me feeling very nervous, but I must have done fairly well at bluffing my way through the day because after the last class the teacher in charge congratulated me on doing such a good job on my first day.

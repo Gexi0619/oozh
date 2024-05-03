@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a new neighborhood, a boy with a glasses fetish becomes enamored with a girl and her thick lenses.
 ---
-
-                                         
 The 2 kids walking down the street made a very odd looking couple. He was thin and was dressed in black jeans and a black short sleeved T shirt. On his arms were a number of tattoo’s and he looked as if he were a little undernourished for his 6” 2 or so height. His female companion was around a foot shorter than he was, and she was definitely not undernourished. Her rotund figure was dressed in a shade of black that perfectly matched her hair. She had piercings all down her ears that were filled with silver studs and on the petite nose of her rather chubby little face sat a pair of heavy framed black glasses with lenses that would be considered extremely thick by even the most casual of observers. They were either a few weeks early for Halloween, or they were the unlikeliest Goth couple I had ever seen.
  
 I had just moved into the neighborhood a couple of weeks earlier, and I knew I had never seen either of them before as I am a keen observer of girls that wear glasses and this young lady was one of the most nearsighted 15 or16 year old girls I had ever seen. I watched as they drew closer and I sang out a friendly “Hi”. She looked my way and I saw her face scrunch up to focus her eyes behind the thick lenses. She smiled and replied to my “hi” with one of her own. He didn’t say anything, but just nodded his head to acknowledge my presence.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Harry embarks on a journey of accepting his need for glasses, facing obstacles along the way.
 ---
-
 This is my first story, so please be nice to me.  Bits of it are based on my actual road to full time wear.
 
 It took Harry a long time to finally accept that he needed to start wearing his glasses all of the time, and he had several ‘false starts’ at full time wear before he actually started full time wear. He first noticed he was having trouble reading the board at school when towards the end of Year 9 (aged about 14). He told his mum who said she’d book him an opticians appointment during the summer holidays.  As he didn’t really want glasses, he wasn’t that bothered about her putting it off.  However, his mum noticed him having difficulty reading the boards at the airport when they were going on holiday so she said to him ‘That reminds me, I need to book you an opticians appointment when we get home’.  He wasn’t keen on going for the eye test, but he did know that getting glasses would help.  When the optician had finished testing his eyes, he said ‘You must have had difficulty seeing the board at school for a while now, I’m surprised you haven’t got glasses before’.  Harry admitted he’d been struggling for a few months, but wasn’t keen on wearing glasses.  He asked the optician if he had to wear glasses all of the time.  The optician said ‘You definitely need to wear them for distance but it makes sense for you to wear them all the time for two reasons. Firstly, you will get used to wearing glasses more quickly if you are not taking them on and off the whole time. Secondly, at your age you will continue to grow and you eyes will get worse so you will need stronger glasses, and you’ll find as your eyes get worse you will soon need them all the time, anyway’. He then took him outside to choose some frames.  The optician told Harry’s mum that he was short sighted and needed glasses for distance, and that he would need another check up in a year’s time.  The dispenser was very helpful and helped Harry to choose some frames.  He didn’t get the cheapest frames in the store, but he didn’t get the designer ones either, because he was not sure how often he was going to wear them.

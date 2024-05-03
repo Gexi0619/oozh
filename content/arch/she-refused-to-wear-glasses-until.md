@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Glasses-loving family navigates relationships and surprises as they all discover the beauty of seeing clearly.
 ---
-
 My name is Andrew .
 I have 2 sisters , Jennifer who is 15 , and in her second year of high school, and Carol who is 17 and in her last year.
 I am the baby of the family, I am just starting high school.

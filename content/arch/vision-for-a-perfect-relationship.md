@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jenny, suspecting her husband's attraction to women in glasses, decides to get an eye test to reignite their spark.
 ---
-
 Chapter 1
 
 Given that she had strong suspicions that her husband, Geoff, was attracted to ladies wearing glasses, it was amazing that Jenny had made it to the age of 35 before booking herself in for a proper eye test. She had always prided herself on her perfect eyesight, she’d never had any problems with her vision and was convinced that this was a bit of a waste of time. 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Astrid's childhood friendship takes a twist when she inherits a secret box of glasses, changing her life forever."
 ---
-
 I am a close friend to Astrid since a couple of months, we got to know each other through our jobs and managed a few  projects together. 
 Last weekend we were out hiking in the mountains and having delicious days together out in nature.
 One Evening we spent in a mountain cabin, where we were on our own and planned to stay overnight after having dinner in the late sun, Astrid took off her sunglasses and changed to normal glasses. On this occasion I asked her, how  and when she started to wear glasses. She was in an easy mood and answered: ”Well, when I was twelve years old, I decided to wear glasses and started wearing them.”

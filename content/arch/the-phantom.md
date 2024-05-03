@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Discover the mysterious truth behind a wave of sudden myopia in former police officers."
 ---
-
 -----------------
 The Phantom
 -----------------

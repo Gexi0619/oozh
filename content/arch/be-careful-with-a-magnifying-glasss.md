@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Curious about the world of glasses, Carl experiments with different lenses and discovers a newfound fascination and comfort.
 ---
-
 It was toward the end of summer holidays, Carl was ready to go back to high school and looking forward to it.
 It was a rainy day and he was bored and looking for something to do, when he spotted an old magnifying glass, picked it up and 
 held it at different distances and angles. It was really fascinating. You could enlarge everything you looked at , and if you held it just right everything was  as clear and sharp  as you could wish for, it was unbelievable.

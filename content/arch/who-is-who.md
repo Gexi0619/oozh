@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: An aging man in a retirement home is captivated by women wearing glasses, but struggles to identify them.
 ---
-
 true story Who is who?
 
 

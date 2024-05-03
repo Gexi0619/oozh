@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Tom's excitement for prom is overshadowed when he discovers a mysterious optician and encounters a peculiar woman.
 ---
-
 This story is all fiction.
 Also, I would like to give credit to Specfiend who appears to be the original writer of Allison and Rick the terrifying test. I found the original story on one of bobby's old pages.
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a forbidden love affair, Xochitl struggles with tradition and sacrifice in this gripping historical fantasy.
 ---
-
 AUTHOR'S NOTE: This story is nothing more than fantasy.  It was not written to be offensive to anyone.  Based on an adjustment to history, it is meant to show what might have possibly been different.  From the perspective of western culture, it does not have a happy ending.
 
 The young woman sat on the short wall behind a small staging building at the edge of the ceremonial plaza.  As planned, she was hidden from view of anyone nearby.  One leg crossed over the other, she fretfully jiggled her free foot with a sandal dangling from its toes.  Xochitl, inhaling insatiably, smoked without restraint revealed by the previous four butts she’d abandoned on the sidewalk.  Since her fiancé had always disliked her addiction, she had intended to give it up someday.  But this was not the right time.

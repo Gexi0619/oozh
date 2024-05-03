@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Two women navigate love, glasses, and deteriorating vision while facing the challenges of adulthood."
 ---
-
 -----------------
 Dear Diary VI
 -----------------

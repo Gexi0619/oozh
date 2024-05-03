@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a quest for a new girlfriend, Daniel collects glasses and finds attraction in the new girl.
 ---
-
 I've never written a story. I do not write stories even in my own language (romanian). So it's a first.
 Zakalwe started the first writing prompt, and after Nic already responded, I also jumped in. 
 

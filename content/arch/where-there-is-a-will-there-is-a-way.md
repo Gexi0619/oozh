@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Brandon becomes obsessed with wearing glasses like his friends, but struggles to find a pair of his own.
 ---
-
 When there is a will there is a way.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A tale of love, attraction, and unconventional beauty as a man navigates relationships with glasses-wearing women.
 ---
-
 This story contains some strong language, so if you are easily offended, please do not read. The dialogue is more or less exactly as it occurred, and I feel it's important to portray the girl featured as accurately as possible as she was truly unique.
 
 Glasses and girls have always gone together for me. They both begin with "G" to start with, so that's good! There are many many other things that relate the two in my mind, and I have been lucky enough to live out what would be fantasies to some, and real life experiences to me. And I continue to do so, as my awareness of certain situations turns what would be normal or uninteresting events to some people into exciting, thrilling, and dare I say it, sexy experiences to me. So far in life I have been lucky enough to have had several of these experiences with girls who have worn glasses for poor eyesight, and reached the ultimate goal in my life of marrying a beautiful myopic girl who I just love to bits! I have so many wonderful stories about my wife, both before and after marriage, and I will get around to telling them, but first I have another story of a girlfriend or two to tell. Also, I have just been told by my lovely wife that I have to decorate a room on Monday, so I'll try to get a couple of stories posted before then. The only good thing about decorating is that I will be able to wear my strong single vision plus glasses to paint above my head around the ceiling as varifocals are no good for that job, and I can wear them all day in the house and enjoy the thrill of the magnified world rushing up at me.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Ellie agrees to act in a play at the Arts Festival, but struggles to find a suitable costume on a budget.
 ---
-
 “What are you doing in the first week of July, Ellie?”
  
 “Nothing that I can think of,” I answered.  “We’ll still have another couple of weeks of school, but it always winds down at that time of year.  Why do you ask?”

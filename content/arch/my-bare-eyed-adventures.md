@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "I ventured into -4.75 contact lenses and discovered a newfound clarity, but navigated a blurry world."
 ---
-
 I've bought some dailies that correct my vision to a -4.75 glasses prescription without astigmatism. (My original plan was -4.00 but I failed to take into account the differences between glasses and contacts prescriptions at higher degrees of myopia.) I have to say -4.75 feels much clearer than my normal vision without glasses, which is around -6.5 with astigmatism. At my real prescription, I feel kind of helpless without correction. But -4.75 borders on manageable. Everything is clearer: I can better identify objects both near me and far away, and I can read things like a phone from a normal distance when I hold it in my hand. I can imagine that if I'd been a vain teenager and resisted getting glasses until my vision was this bad, I'd think that the situation was bad but still feasible. I would have gotten used to everything being blurred, and I would be able to see most of the things I need to see with different workarounds. Or I could wear glasses only part-time, on the computer and when shopping and watching TV, if contacts weren't an option and I wanted to preserve my glasses-less image.
 
 I started out my -4.75 adventures in the easiest possible way and went jogging in bright daylight. A neighbor had taped a small piece of paper on their door in the stairway and on my way out, I passed it without being able to read it. This is what going bare-eyed is all about - you can't read most things and you just have to let it go, hoping it doesn't matter.

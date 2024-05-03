@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In an art class, a man is captivated by a young woman with thick glasses and a unique painting style.
 ---
-
 ---------------  
 The Painter  
 ---------------  

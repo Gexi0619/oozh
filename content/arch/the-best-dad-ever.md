@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A devoted single father navigates the challenges of raising his daughter after her mother's abandonment.
 ---
-
 I just got home from a birthday celebration for my 23rd birthday with my dad. After we got home from the restaurant he took out an ice cream birthday cake from the freezer and he sang Happy Birthday to me. Then we both ate enough ice cream to get brain freeze.  He is so thoughtful and kind I often can’t believe what a super dad he is.
 
 My dad has been my only parent since my mom left us just before I was 3 years old.  I seem to remember that I was devastated about mom leaving at the time. I only have a slight memory of coming downstairs in the morning looking for my dad and mom, and finding my dad on his hands and knees scrubbing the kitchen floor. There was a pile of towels beside him that had turned all red from what ever he was scrubbing, and when I asked him where mommy was he told me that she didn’t love us anymore and had left us to go off with her boyfriend. I do remember daddy telling me to be very careful where I stepped because he had dropped a ketchup bottle and it had broken, spilling the ketchup all over the place.  He scrubbed the floor for a very long time with bleach and I remember that the kitchen smelled like bleach the rest of the short time we lived there.

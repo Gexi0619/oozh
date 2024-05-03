@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this steamy slice of life, David and Katie embark on a tantalizing adventure, testing the limits of control and desire.
 ---
-
 [I'm going to use this thread for David and Katie stories with more erotic content. They will still be in the same continuity as my other stories, but I'll keep them separate both so those who are looking for erotic stuff can find them more easily, and those who don't can avoid them more easily. These will be shorter, and sort of in a "slice of life" form]
 
 NEW SPECS

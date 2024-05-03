@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl reluctantly goes to boarding school after her mother's death and her father's inability to care for her.
 ---
-
 This is a long story. It is all written. It takes the form of an extended diary going back five years in time.  I'll post it in a number of instalments in the coming weeks. I hope you like it.
 
 Part 1

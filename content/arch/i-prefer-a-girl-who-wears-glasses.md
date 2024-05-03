@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl moves to the city, finds a job, and forms a close friendship in her new life.
 ---
-
 I prefer a girl who wears glasses!
 
 

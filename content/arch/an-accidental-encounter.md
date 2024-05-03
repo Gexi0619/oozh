@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter with a nearsighted woman and her family leaves one curious traveler captivated.
 ---
-
 I had stopped to have supper on my trip from the eastern portion of the country out to the west coast. As I sat, waiting for the meal I had just ordered, I was looking out of the window of the restaurant that was attached to the truck stop where I had parked my pickup truck and trailer.  A fairly heavy set younger man was walking around the building accompanied by a lady that seemed to be about his age and a young, 7 or 8 year old, girl.  I surmised that this was likely a husband and wife, along with their daughter.  I had noticed a flash of light reflected from her glasses, and I wanted to get a better look at her as she drew near. She appeared to be favoring one leg, possibly as the result of a twisted ankle or something minor like that.
 
 The restaurant I was seated in had two walls of windows, and I had noticed them first through the west windows.  By the time they got around to the front I watched the lady walk all along the front wall until she passed my position just where the windows ended. She was wearing glasses that appeared to have a pretty decent minus prescription in the lenses and I hoped that the family would come into the restaurant. When they hadn’t appeared after I had waited what I considered a reasonable period of time I decided I would make a trip out to the washrooms which were located behind the convenience store area.

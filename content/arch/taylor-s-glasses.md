@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: After getting prescribed glasses, Taylor navigates the challenges of wearing them only part-time and fitting in at school.
 ---
-
 School was over for the day and Taylor gently removed her glasses. She carefully placed them in the hard clamshell plastic case they had come in, and she placed the case into her backpack along with her schoolbooks.  When she looked up and off into the distance she really didn't like the blur she saw, and would almost rather have left her glasses on.  But Mr. Sloan, her eye doctor, had suggested that she really only needed glasses for school, watching the television, and the movies. The rest of the time Taylor could go without them.  Her mom had also felt that it would be better for Taylor if she didn't wear her glasses all the time, and had even said that wearing glasses all the time would lead to Taylor needing stronger glasses sooner.
 
 It had been a shock to Taylor when she had gone for her yearly physical.  The nurse took her into the hall, and had her attempt to read the eye chart that was at the other end of the hallway.  Taylor could only read a couple of lines clearly, and the nurse had then told her that it looked as if she might be nearsighted, and would need to get glasses.  Taylor didn't like the sounds of that.

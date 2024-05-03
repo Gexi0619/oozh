@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In part two of this gripping story, Monica seeks out the thickest possible glasses while dealing with her changing eyesight.
 ---
-
 When the first part of this story ended in part one Andrew and Monica had just gotten married after a whirlwind romance and Monica was working as Andrew’s receptionist at his Psychiatric practice.
 
 Monica had not been completely happy with the first pair of glasses she had gotten after the operations to make her extremely myopic. They were myodiscs, but they had been made with the highest index lenses possible. I thought they looked great on her, but she wanted an even thicker looking pair.  We went off shopping, armed with her newest prescription from the doctor that had done the laser surgery on her eyes with a plus 10D prescription and had also implanted +15D inner ocular lenses.  I suppose that Monice really did need new glasses because it had now been about 6 months since she had the operations, and her eyes had settled in nicely to her now extremely myopic eyesight.  Her prescription now was a little stronger than the first one she had been given, and she now required lenses of the power of -32.50 for both eyes, up slightly from the -31.50 that she originally had been given.

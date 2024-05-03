@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A myopic woman's lack of back-up glasses leads to a frantic search for a replacement pair.
 ---
-
 You can never have too many back-ups. This is perfectly illustrated by the following episode which happened to my wife a good few years after we were married. But first, a bit of background to this wonderful lady.
 
 I married a very myopic girl without even realising she was so short-sighted when I first dated her. “Glasses Moments 6 – Finding Miss Right” describes that time. I now know that when I first met her she was L -8.50, R -8.00, and wore contact lenses. She didn’t even have a back-up pair of glasses except for an old weak pair from when she was 19. She just never bothered. To her, poor eyesight was a disability and something she was born with. She had no interest in her condition whatsoever, and just accepted it as a part of normal life. The regime of putting lenses in, taking them out, and cleaning them was as mundane a task as washing and eating. Just something else you had to do daily. And if you ever approached the subject of her eyesight, she immediately got defensive and said not to discuss someone’s disability. I used to watch her coming from the bathroom at night having removed her lenses, and feeling her way to the bed with her arms outstretched touching the furniture. It gave me a strange buzz, and even a bigger one when I knew that the girl lying beside me was virtually blind at that moment. Strange how the mind works. And then in the morning, it was a repeat procedure, with the first task being to put her lenses in. Sometimes, if we were having a lie-in on a Saturday, there would be a knock at the door at 9 am with a delivery she was expecting, but it was me who had to get up and answer it. “I can’t,” she’d say, “I don’t have my eyes in!” And if I suggested getting back-up glasses, I was shouted down. “Waste of money – I don’t need them. We need to keep our cash for things the kids need,” she would say. She wouldn’t even go for regular eye tests, and I did suspect that when our two children were born her sight actually got worse. The telltale signs were there – squinting, moving nearer the TV, reading closer to her face, but you just couldn’t tell her. Taboo subject! However, the following episode was to change all that.

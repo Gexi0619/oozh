@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A 7-year-old's determination to wear glasses leads to a deceitful plan, ultimately affecting his eyesight.
 ---
-
 When I was 7 years old I decided that I wanted to wear glasses.  I don't really know for sure what made me decide that, but I suspect that it was because my new grade 2 teacher wore fairly thick and strong glasses and I thought she looked really fabulous wearing her glasses.  I then started on a campaign to get myself a pair of glasses.  I told my teacher that I couldn't really see the board very well from my seat in the middle of the room, so she moved me up closer to the front.  Then I told my mom that the teacher had moved me closer to the board because I couldn't see it well enough from where I sat.    Finally mom made an appointment with a doctor in the mall right next to a one hour optical store.
 
 If this had been the world of today, then the outcome would have been a lot different.  Now when I go to see my eye doctor the nurse receptionist takes me into a room and has me look into a machine that checks my prescription, and then sends the data to the doctor's phoropter so that when I am seated in front of the phoropter my prescription is already dialed in.  I only have to advise the doctor which is clearer - 1 or 2 as he fine tunes my prescription.  But back in the mid 80's when the one hour optical stores started to appear in most of the malls the doctors that had their practices connected with the store were mainly interested in selling glasses to their patients.  When my mother was asked the reason for my visit she told the doctor that my teacher had said that I couldn't see the chalkboard.  The doctor already had his mind made up that I was nearsighted, and the only question in his mind was how strong a prescription would I require.

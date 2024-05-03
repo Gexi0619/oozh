@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man reflects on his friendship and his wife's myopia at a packed funeral parlor.
 ---
-
 The funeral parlor was packed, and my wife and I were going to be standing in the line up longer than either of us had wanted to. I didn’t think that it was a good idea to tell my wife that she could have listened to my suggestion to go a little earlier so it was just going to be a matter of grin and bear it.  I could see Dave, my best friend ever since we were in grade one, standing next to Linda’s coffin, and his 2 daughters and their husbands were next to him.  Dave and I had been very close from the age of 6 through the age of 22. I was the best man at their wedding, and when Nancy and I were married Dave was my best man. We had stayed in contact over the years, but as so often happens once the pressures of a wife, a job and family bear down upon you the closeness tends to drift apart.
 
 The line moved slowly, and as it moved I looked at my wife. She was still as trim and fit as she had been the day I met her, and as I reflected on this I realized that the night Dave and I met Nancy at a dance she was also wearing her glasses.  For years she had worn contact lenses every day as she went off to her job as a primary grade school teacher, and the only time I would get to see her wearing her glasses was during the evenings at home. Yes, when our 3 kids were younger and Nancy was at home with them she would often go for days, and sometimes weeks without inserting her lenses, but for the most part she was a confirmed contact lens wearer. 

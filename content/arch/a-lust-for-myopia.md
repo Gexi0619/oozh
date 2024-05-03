@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man's infatuation with a coworker threatens his marriage, leading to a shocking discovery about himself.
 ---
-
- 
 When I was 22 I married my wife, who had just turned 20 at the time.  After we had been married for a few months I felt I had made the biggest mistake in the world by getting married when I did, but I managed to hide my feelings. We worked through this rough spell, and I hope that my wife never realized how close I came to walking away from our marriage.
  
 I had graduated with a degree in accounting from our local community college, and I took a position at a bank in town as soon as I was married. That was when the trouble started. Part of my job was to interview any prospective tellers, and that was how I happened to hire the young lady that was almost my downfall.  When Dianna walked through the door into my office that morning I took one look at her and fell in love.  Or, maybe the right way to put it would be I immediately lusted after her.  She was the most beautiful woman I had ever seen.  Her medium blond hair was tied back in a ponytail, and her breasts looked like mountains under the tight sweater that she had on.  Her slender hips moved seductively as she walked over to the chair that was in front of my desk, and her legs looked like they went on forever from the high heels that she was wearing all the way up under the rather skimpy dress she wore that clung to her trim rear end. But what really attracted me were the rather strong looking glasses that she wore on her pretty little nose.  I could see daylight past her head through the outside edges of her lenses and her face appeared to be sunk in by the lenses. I had seen others who wore the same type of glasses before in my life, but never on a person who drew me to them like a honey bee is drawn to flowers.  I knew I was doing something that I might regret when I immediately hired her to be a teller, but I just couldn’t help myself. 

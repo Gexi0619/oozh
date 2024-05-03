@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a case of mistaken identity, Linda's friend-turned-girlfriend violently attacks her, leaving Linda questioning everything.
 ---
-
 Please make sure you have read “Hi – I’m Linda” Parts 1 and 2 before reading this.
 
 The police separated the two girls who were still fighting like cat and dog. They were quite rough in the way they handled Jane, and she shouted at them, “Get your hands off me, you’re touching my boobs, I can have you for assault.”

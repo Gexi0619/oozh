@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a heavenly paradise, Adam desires a woman with bad eyesight like him, leading to unexpected pleasures.
 ---
-
 Adam and Eve - With Glasses
 
 Adam lived in paradise. It was full of food of every kind, drink of every kind, things to do of every kind. Adam loved it. Adam was tall with thick black hair, and was well - endowed. He wore thick black glasses, in which he was very blind without. He would play games with his glasses, like try into to see things without his glasses, and trying to find his glasses without them and squinting his eyes to see if he can see any better without glasses, which he couldn't.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Michelle and Julie navigate the final days of university while brainstorming ideas for the End of Exams Party.
 ---
-
 “Julie!  Julie!  Wait for me!”
  
 I turned around, knowing that I was going to see Michelle Brown running towards me.  We were into our final two days of lectures at university, then we’d have a week to revise before the start of our finals.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the transformative power of getting glasses for the first time through these compelling true stories.
 ---
-
 Here are four true stories told on EyeScene by young hyperopes (with comments by other members) about their experience of getting glasses for the first time. Unfortunately both Jacky and BlurryBristol aborted their stories after hostile comments by other posters and neither of them has been heard of since.
 
 

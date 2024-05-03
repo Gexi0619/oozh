@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A gripping story of family, young love, and the evolving world of technology through the eyes of a young girl.
 ---
-
 I now have a myopic family
 
 

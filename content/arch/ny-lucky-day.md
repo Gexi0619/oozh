@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover Nicole's journey from trying on a pair of glasses to pursuing a career as an optician.
 ---
-
 My Lucky Day 
 
 My name is Nicole , believe it or not, I love wearing glasses. 

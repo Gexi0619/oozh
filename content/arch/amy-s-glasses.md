@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Amy's glasses improve her baseball skills, leading Paul and Randy to question their own vision."
 ---
-
 Amy’s glasses..
 
 

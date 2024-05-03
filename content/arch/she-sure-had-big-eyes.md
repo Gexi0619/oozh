@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy discovers the benefits of wearing glasses and learns to embrace his new accessory.
 ---
-
 When you are a young boy growing up , some things you see impress you more than others.Since there are so many interesting things around, you soon realize that some impress you more than others.
 
 We have a new teacher, she has very nice hair an wears glasses.

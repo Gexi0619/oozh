@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "In a family of three girls, Susan discovers she needs glasses, sparking jealousy and a search for identity."
 ---
-
 I am want to the one, wearing the strongest glasses, in our family. Part 1, and part 2
 
 

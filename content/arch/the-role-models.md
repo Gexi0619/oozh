@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A father contemplates the perfect name for his newborn baby while surrounded by an eccentric family.
 ---
-
 I stood in the hospital room that was full of family, all gathered around the bed where my wife lay in bed holding “no name”, our newest family member.  Katherine was my name choice, as we had known she was going to be a girl for the last 6 months. My whole family used nicknames. My dad Peter was called Peck. Don’t ask me why, and where the heck does Peck come from Pete? My sister Sammie was really Samantha. My name is Duncan, and I am called either Slam or Dunk, or Slamdunk which is a combination of both. I suppose that is natural because I stand 6’3” and was the tallest player on my high school basketball team. My mom’s name was Anna Katherine, and she was called Annie Kat all her life. I figured if we called the baby Katherine we would be honoring mom and the worst nickname we could come up with would likely be Kat or Katie or even KitKat. My wife, who was holding the center of attention was Alicia, nicknamed of course Allie and I wanted Alicia to be Katie’s middle name. But I hadn’t won the argument yet. And yes, I think I do know where Peck likely comes from – Peter Piper picked a peck of pickled peppers.
  
 At least Allie’s side of the family wasn’t into stupid nicknames. Her father Frank was called just that, and her older brother Robert was Bob. Her mom was Judy, and there isn’t much you can do with Judy as a nickname. But even with the baby in Allie’s arms that meant there were 9 people in the hospital room and that made it a tight fit. It was time for people to leave, but I couldn’t rush them out.

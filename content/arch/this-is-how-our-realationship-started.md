@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Deceit and Revelation, a Teen's Struggle with Vision and Identity, Forced to Confront the Truth
 ---
-
 I'm 17 years old now and for the last 5 years I have managed to fake my school eye test.
 My right eye has perfect vision but I can't see much out of my left eye.I I have a very good memory so when I have to read the letter with my left eye I know them off by heart.
 
@@ -97,7 +95,7 @@ His receptions kindly brought me a coffee and stayed with me when she was not bu
 About an hour later she took me back into the Doctor testing room.
 On his table was a tray with a cover over it,was this MY glasses hiding from under it.
 As he took the cover off I wanted  to scream the right lens looked ok it was thin and just one piece  but the left lens was horrible it had a line going all the way across the lens and was nearly an inch thick
-  
+
 He gently took the test frames off of me,.what had happened everything seem blurry and double.
 As he placed MY glasses on me I was shocked how bright and clear everthing was, only then did I realise that I had not had any headache while I was wearing the test frames 
 He told me to look straight ahead then walk around the shop and close my right eye I couldn't  believe I could see perfect with my left eye, next he showed me how to use the bifocal part of the lens for reading.
@@ -183,7 +181,7 @@ Ralph is going to get his eyes tested tomorrow, and ask if he can have bifocal l
 Also he wants me to come with him.
 
 THAT'S HOW ARE RELATIONSHIP STARTED
- 
+
 
 
 

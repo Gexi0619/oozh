@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A boy's desire to wear glasses like his dad leads him on a journey to discover his own vision."
 ---
-
 Kevin a sturdy 12 yr old, has an older sister Amy, a very pretty girl,.
 Both parents wear glasses, the mother a -4.25 myopic and the father a +3.50 hyperopic.
 Kevin thinks his dad is very a handsome man, and looks fantastic wearing glasses.

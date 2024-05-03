@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl navigates her turbulent life, finding solace in collecting vintage glasses with increasingly stronger prescriptions.
 ---
-
 I was 8 years old when I got my first pair of glasses. Looking back, I now realize that they were quite weak, compared to my second and third pair, but at the time I was just pleased with how much clearer these glasses made everything look. I used to enjoy taking them off and looking into the blur. Then I would place them on the end of my nose and slide them into place, amazed at the way they made everything look so clear and sharp. I suppose I needn’t have worn that first pair all the time, but I really liked wearing them, so I did.
  
 It didn’t take long before these first glasses no longer made everything as clear and sharp as they did at first. Soon things were fuzzy, even with the glasses on, and now everything was even fuzzier when I took them off. I told my mom, and I then got my second pair of glasses less than a year after I had gotten my original glasses.

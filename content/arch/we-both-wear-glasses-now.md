@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When Kevin's best friend Jeff starts wearing glasses, Kevin becomes intrigued and soon realizes he needs them too.
 ---
-
 We both  wear glasses now.
 
 My name is  Kevin .

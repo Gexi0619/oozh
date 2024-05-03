@@ -1,16 +1,14 @@
 ---
 title: "Ally's Story"
-author: 未找到作者信息
+author: CatWithNoName
 date: '2013-12-28'
 categories:
-  - 未找到作者信息
+  - CatWithNoName
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A mother realizes her daughter needs glasses, leading to improved school performance and a guilt-ridden journey.
 ---
-
 Part 1
 
 As the optician frowned, changing the lenses in the plastic frame over my daughter's eyes, that I knew we would be going home with glasses. I didn't mind - Ally was a bright little girl and her teacher thought that her recent difficulties at school could perhaps be explained by what Ally referred to as her "fuzzy eyes". At first I had felt guilty, aware of the fact that for the last year my time had been entirely swallowed up by her little brother Tom, a colicky baby who had kept us all on our toes from the moment he was born, screaming long into the night and waking us up early in the morning. Following her teacher's remarks, I had watched Ally closely, noting that she did perhaps sit a little too close to the television and would scrunch up her eyes when looking across the room. A few days later, I had called our nearest opticians to make an appointment, and here we were now.

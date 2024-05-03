@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A thrilling twist of fate leads to a shocking discovery as the protagonist's prescription takes a drastic turn.
 ---
-
 Part 4
  
 Over a month had gone by, and I could no longer ignore Dr. Sadler’s request that I should have my eyes examined. Late that afternoon found me sitting in his office exam chair. Earlier on Gail, one of the opticians had taken me into the pre exam room and had done a visual field test and had used the auto refractor to determine the prescription I needed. She did tell me that my prescription was a little over what was in my current glasses, and I was happy at that because I really liked the power of these glasses. The doctor was very thorough with his examination of my eyes. I had a hard time deciding which lenses were the best, but I managed to get to the point where the letters on the smallest chart were unreadable but clear. However, the next line up was really clear, and Dr. Sadler told me that I could no longer be corrected to 20/20, but I could see the 20/25 line very well. He also told me that most high minus patients could no longer even read the 20/25 line because of the minification factor caused by the strong minus lenses. He had not told me what my new prescription was going to be, but he had entered it into the computer and when I went back to my desk, I accessed my file. I couldn’t believe what he had entered. I now needed a prescription of -18.50D for both eyes, and Dr. Sadler had made a notation that it appeared that I had a case of progressive myopia, which could lead to increased prescriptions which would hopefully stabilize as I aged. I didn’t like the sound of that, but since I had bought the 5 pairs of glasses at the thrift store and had likely used them to increase my prescription, I could not cry about it. After all, if I actually had progressive myopia my prescription might have increased anyway. I had been surprised by Bailey again a couple of days ago when she asked me if she could try my next stronger pair of glasses because the -7.50D ones no longer gave her clear vision – and that had only been a few months after she had started wearing them.

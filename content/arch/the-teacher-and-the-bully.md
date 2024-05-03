@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Nicole, a soon-to-be teacher, discovers the power of glasses as she helps a student with vision problems.
 ---
-
 Nicole was in her last year of university, studying to become a teacher.
 She was looking forward to the end of the semester and graduation, so she would be able to start teaching and generate some income.
 Being born and raised on a farm she liked the quiet rural life.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Unknowingly stumbling upon the power of glasses, a young woman's life takes an unexpected turn.
 ---
-
 The to induce myopia club
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "An unexpected twist of fate leads Ashley on a journey of self-discovery through the world of glasses."
 ---
-
 Eyeglasses are fascinating..
 
 My name is  Ashley, after graduating from college I went to work in the office of a large insurance company, 

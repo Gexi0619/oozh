@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A high school student develops a fetish for glasses, leading him down a dangerous path of obsession.
 ---
-
 My name is Bradley, I am a high school student, and think I have a fetish.
 My mother wears glasses for myopia, I love the look of her glasses, the lenses seem to sparkle, she looks beautiful.
 Both my sisters wear glasses for myopia, I have tried their glasses a few times and love the feel of them on my face.

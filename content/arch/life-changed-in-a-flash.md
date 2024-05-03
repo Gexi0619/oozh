@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a gripping twist of fate, a driver confronts a haunting past after a tragic accident.
 ---
-
 I renewed my driver’s license the other day, although it has been 13 years since I have been behind the wheel of an automobile.  The horror of that fateful day, just 3 days after my 24th birthday, will stay forever in my mind and I have promised myself that I would never take a chance of having the same thing happen again.
 
 When I was 6 years old my teacher told my mom that I didn’t seem to be able to see things as well as the other students.  So my mom took me to our local eye doctor who prescribed me a pair of glasses to help me see better.  Apparently I required a fairly strong prescription for a 6 year old.  After I got glasses I was thrilled.  Trees had leaves, buildings had individual bricks and I no longer had to get right up close to a person before I could recognize their face.  But these glasses were only a temporary fix, because very shortly I had to get new, stronger glasses.  This went on through grade school, and then all the way through high school and I was known to everyone as that kid with the thick glasses.  And along the way I received quite a few rather nasty comments about my eyes and my coke bottle glasses so my self-esteem did suffer.  I was dragged off to see different eye doctors and the diagnosis was always the same.  I had progressive myopia.  I might reach a point where it stops increasing once I was in my mid to late 20’s, or I might never have my myopia stop.  I wasn’t really worried as long as I could get new glasses that I could see clearly with again, but by the time I came home from teacher’s college that year I turned 24 I was certainly hoping that my glasses didn’t get any thicker. Everyone seemed to stare at me and I felt very self conscious about the thick lenses that I needed in my glasses.

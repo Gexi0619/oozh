@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "In this captivating story, Ashley discovers her fascination for eyes and becomes obsessed with wearing glasses."
 ---
-
 Is the glasses wearing fetish, contagious?.
 
 Charlene, is in her last year of high school, then it is me, Ashley, I am now in my second year of high school, and then my youngest sister Megan, who will be starting high school next year.

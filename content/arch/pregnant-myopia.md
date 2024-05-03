@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Discover the irresistible allure of glasses-wearing women in this captivating tale of love, loss, and finding happiness."
 ---
-
 I have always been interested in girls who wore glasses.  I think this was probably because my mother and my older sister wore glasses, and the first thing I remember is being told not to grab mommy’s glasses. My mother and my sister Janice, who was 6 years older than I was, were nearsighted, as I learned at a later date.  They could not see things very far away without their glasses on.    Neither my mom, nor my sister wore glasses that were really strong. My mom had a prescription of around -6D for all of her adult life, and my sister still wears a prescription of around -7D. But at the time strength didn’t matter to me. All I knew was that I liked women who wore glasses.
 
 The attractiveness of ladies wearing glasses has stayed with me all of my life.  When I was a senior in high school my steady girlfriend was a glasses wearer, and I expected to marry Gail, and have a couple of children together.  However Gail was a reluctant glasses wearer.  She needed her glasses to see much of anything, as her prescription was around -8.50D, and she always complained about how blind she was.  But then Gail discovered contact lenses, and after that she was always wearing contacts. We had moved in together after we graduated from high school, but something was preventing me from asking her to marry me.  Finally I was given an ultimatum to either marry her, or move on. So I married her.

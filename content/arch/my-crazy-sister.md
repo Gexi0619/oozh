@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A sister's obsession with her friend's glasses leads to a dangerous secret that could ruin her eyesight.
 ---
-
 I am positive my sister is crazy. She has just got to be insane.  Sheila’s best friend at school has worn glasses ever since she was about 5 years old. And now Sheila has talked Emily into giving her an old pair of her glasses and letting her wear them.  Sheila is going to ruin her eyes, I just know it.
 
 It has been about a month since Sheila started to wear Emily’s old glasses.  I really didn’t think she would be able to keep it up. Emily’s new glasses look to be really strong, much stronger than the ones she gave to Sheila.  But the ones Sheila has been wearing look quite strong as well.  I don’t know how much longer Sheila can keep this up without getting caught.  Everyone at school has now seen Sheila wearing glasses, and they have gotten used to seeing her in class and walking in the halls with glasses on.  They all think she really needs them. And every night after school Sheila leaves her glasses on until mom gets home from work.  If dad was home like he was before he was deployed she would never be able to get away with it.  The only reason that she has been able to do it so far is because I am now, at age 13, old enough to look after her after school instead of us having to go to a sitter.  Next year, after she turns 12 I will be able to stay and play with my friends instead of rushing home to be here for my crazy sister because she will be old enough to be by herself.

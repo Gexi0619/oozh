@@ -7,11 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "The Strabismus Institute continues with Part 2 of Jack's exam, using movies to test his eye motility and fusion range."
 ---
-
- The Strabismus Institute
+The Strabismus Institute
 
 Part 2 – The Exam
 

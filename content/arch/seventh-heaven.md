@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man reflects on life and wonders about the afterlife before embarking on a fantastical journey to Seventh Heaven.
 ---
-
 A partly true story.
 
              I recommend Seventh Heaven , I am sure you will like it 

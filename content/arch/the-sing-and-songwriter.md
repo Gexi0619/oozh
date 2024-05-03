@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Artist seeks to improve guitar skills and singing, but encounters a mysterious opportunity with dark consequences.
 ---
-
 My father is a real rock fan and did not miss a concert in our city when a famous or less famous band in our city gave the honor. My twin brother and I always wanted to join himk, but we wer too small then. Instead my father often my father bought the current CD. And of course we could hear them. Consequently, we also wanted to become famous rock musicians. My brother got some drums and I got a guitar. We then found two more schoolmates and founded our own band. Actually, we did good music, but there was still something missing for the right sound and that was unfortunately my skills as a singer and player. Consequently, the other members wanted to find another guitarist and singer. Since I knew that our keyboardist Henry might have had an eye on me, I could convince him that I would still be able to do it, so we could both convince the others that we wanted to try another quarter. If I did not make any significant progress by then, I would have to leave the group.
 I practiced at least three hours a day for a month every day, but it was so bewitched that no progress was apparent, either on the instrument or on the singing. When I wanted to give up, we drove to my grandma on a Sunday. Usually I slept in the car, but I was so agitated that I could not sleep. In order not to sink into dubious thoughts, I looked at the surroundings. Two villages  away from home there was an accident and therefore we were stuck in a traffic jam. Lost in my thoughts, I looked to the left, and a sign excited my attention.
 "I release talents. In a unique way. Special paying conditions apply: No money needed ".

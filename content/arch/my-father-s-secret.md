@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this gripping memoir, a woman uncovers her father's hidden secret and reflects on their shared history.
 ---
-
 Around the time I turned 39 I found out that my father had been harboring a secret for many years. When I finally realized what his secret was I was able to look back on my life as my sisters and I grew up and realize that there were times when his secret was obvious to anyone who was able to open their eyes and see, but no one ever did.  His secret wasn’t really anything that would bring him shame if it had been brought out into the open, but because of his position in life it might possibly have caused a few people to question his past actions.  Before I reveal this secret I think I should first fill you in on some pertinent facts.
 
 My dad was born in 1945, just before the end of the second word war.  His father was a fighter pilot in the American air force, and was stationed at Lancaster air base in England. It was there that he met my grandmother, who was a nurse in the Canadian Red Cross. Gram was also stationed at the same air base, as both Canadian and American planes flew from there to bomb the German’s.  They married while they were in England, and somehow or another Gran ended up pregnant with my dad.  She was allowed to leave England before her time was up and return to Canada, where my father was born.

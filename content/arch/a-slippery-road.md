@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Discovering the allure of glasses through research leads to unexpected consequences in this captivating coming-of-age story."
 ---
-
 Here is a story to start the New Year off.  Happy New Year everyone!
 
 With everything in life there seems to be a point where the road you follow leads off in a certain direction. That has certainly seemed to be the case in my life.  Probably the first fork in the path of life I was following came the day that my best friend at school got a pair of glasses.  Carrie had known for a while that she couldn’t see as much, or as well as I could. We had done some searching on the internet and we had discovered that Carrie was very likely a bit nearsighted and would probably need to wear glasses.  It was very interesting to me to read about eyes, and eyesight and the various problems that could occur with your vision that would require you to have to wear glasses, and this may have been when I became interested in glasses.

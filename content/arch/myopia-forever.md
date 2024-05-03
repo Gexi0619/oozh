@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Cataract surgery offers improved eyesight, but Miranda must decide if she's willing to part with her beloved glasses.
 ---
-
 "Your cataracts have reached the point where they are affecting your vision and most likely your daily life Mrs. Jimson.  At this point your insurance company will pay to have them removed.  I am thinking that with your strong prescription we might be able to remove your lenses and you will then have a natural prescription of no more than around -3D." Dr. Cole said.
 
 "I don't know Doctor.  Would it be possible to give me the exact same prescription I already have?  I have worn thick glasses since I was a little girl and I just don't know if I could adjust to not wearing them." Miranda replied.

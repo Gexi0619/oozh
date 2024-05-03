@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man reflects on his past relationships with nearsighted women and the intriguing experiences that ensued.
 ---
-
 I like to reminisce about girls with glasses I've known over the years. I've dated a dozen or so women and six of them have been nearsighted. I've never chosen my dates based on glasses but the proportion is still somewhat high. I read somewhere that only 28% of my generation are myopic. I like geeky girls so maybe that explains it.
  
 In my early twenties, I had a few months' fling with an aspiring poet/musician. She was dark, petite and very beautiful in an innocent way, undoubtedly admired by many. Certainly I'd had a crush on her for ages. She didn't wear glasses and I didn't even know she was shortsighted. To my astonishment, she showed interest in me and we started hanging out together. When we spent our first night together (and just before we had sex for the first time), she came back from the bathroom wearing glasses. I was used to being the blindest person in the room myself with my -5 prescription, so I said, "Oh you wear glasses too. I'm sure you are not as blind as me, though." ”Well, actually I am totally blind”, she said sheepishly. She told me her eyes were around -6. I took a closer look and noticed the power rings in her purple plastic frames. I was mesmerized. She told me she really disliked wearing glasses but now felt comfortable wearing them in front of me. We kissed, and soon her shirt and bra came off.

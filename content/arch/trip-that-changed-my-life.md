@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A teenager's dream of studying in the USA takes an unexpected turn when he is prescribed glasses.
 ---
-
 It was August 1999 and just a few days after my 17th birthday, my longtime dream was about to happen. Whole year studying at high school in the USA was not a small deal for kid from Central European country that only 10 years earlier was communist stronghold. Since I spent my whole life in our capital city and saw New York in countless of movies, I obviously hoped to be assigned to NYC or maybe Chicago, even LA. Since the whole programme was not commercial, schools and guest families were mostly volunteers, I had no such luck. I guess, it was the first time I have ever heard about state called Idaho, when I received details about my year in the USA, but still, it was supposed to by experience to change my life forever. And it did... 
 After long flight with two changes, I was finally landed at Boise Airport and was warmly welcome by a big men in his late forties who resembled John Goodman in Big Lebowski. During the long drive to his home he told me all about himself and his family. His name was Jack, his wife’s  Melissa and they had daughter Karen, pretty much the same age as me. Jack was eye doctor and Melissa stayed at home. He wore big aviator framed eyeglasses, with normal looking lenses, at least to me. I really didn’t spend any time thinking about them, everything was new and intense. 
 After two weeks the school began and even if I struggled at first with English and different accents then was taught in my school, everyone was really nice and helpful. Karen introduced me to all her friends. And since she was really popular cheerleader, they accepted me even with my weird accent. 

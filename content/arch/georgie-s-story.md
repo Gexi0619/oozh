@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A single mother and her daughter navigate life, dreams, and the world of glasses in this captivating journey.
 ---
-
 Hello there. My name is Georgie and I’m an optical obsessive. 
  
 I’m also single mother with a young daughter Molly, now four and a half years old.

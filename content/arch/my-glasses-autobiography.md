@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: From childhood to university, Mariana's glasses narrate her journey of myopia progression and self-acceptance.
 ---
-
 My name is Mariana and this is the story of my glasses. It’s not so easy to write this, as thinking about my eyesight over the last 20 years can sometimes feel like a record of decline, even a kind of failure. But I can’t really think about it that way now. After all, I’ve been married to a wonderful man for nearly two years, and we’ve just had our first child – a beautiful baby boy. That, and my strong Christian faith, give me a very positive outlook on life, and at the moment my eyes seem to have settled too – I haven’t had a big prescription change for nearly two years, even after my baby was born. Every day, I thank God for what I can see and for the people I love.
 
 But my glasses biography is a long one and my vision is quite poor. My parents first noticed that I was having trouble seeing things when I was about three years old, and I was prescribed glasses for myopia (near-sightedness) when I was four. I think it must have been my mother who chose the frames, but I liked them: they were simple round frames, with gold rims and I kept that same style for quite a long time – until I went to university. During childhood, my prescription changed a little each year, getting gradually stronger. At first I didn’t really notice – when I was 10, I suppose I was probably about -6.00, though I’m not sure as I don’t have any of my glasses prescriptions from that time. A photo of me at a wedding when I was 12 years old shows me quite a thin girl, in a dress I always liked, and in glasses that look to be a little stronger. 

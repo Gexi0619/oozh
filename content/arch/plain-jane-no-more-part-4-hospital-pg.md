@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this chapter of "Plain Jane No More," Jane visits an ophthalmologist and confronts her worsening eyesight.
 ---
-
 Please make sure you have read “Plain Jane No More” Parts 1, 2 and 3 before reading this.
 
 Warning - the following chapter contains adult material.

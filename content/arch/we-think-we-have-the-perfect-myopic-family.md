@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young boy named Dylan longs to wear glasses like his family, but will his wish come true?
 ---
-
 We think, we have the perfect myopic family.
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In this explicit coming-of-age story, a teenage boy navigates his sexuality while adjusting to a new school.
 ---
-
 This is the first piece of new fiction I’ve posted for about three years, and I’ve been messing about with it and tweaking it for a lot of that time. About ten years ago I wrote a series of stories Bobby classified as ‘the Shakespeare series’ involving a gay optometrist called William Shakespeare and his friends, staff and patients. Each of these stories had the name of a play by the ‘real’, or original, William Shakespeare. ‘Much ado about nothing’ concerned two schoolboys who both had to get glasses before they could start driving lessons, and became teenage lovers. This story is about their sons. Be warned: it gets pretty explicit; so if you don’t want to read about gay sex it isn’t for you.
 It’s my birthday tomorrow; I’ll be fifteen. Every time my birthday comes round it reminds me that when Mam was alive it’s the time she used to take me to Lizar’s in Aberdeen to get my eyes tested in case I needed glasses like Dad. Each time I used to think, maybe this year I’ll get them, but it never happened. Then she got sick and died and I haven’t been back there since I was twelve. Never mind, I still haven’t got glasses and I can see just fine, but I miss my Mam.
 Went to see the latest Harry Potter film; really enjoyed it. Can’t help noticing how good looking Daniel Radcliffe has got, and those round glasses really suit him. If I need glasses later on I’ll get that kind. Talking of glasses, when Dad’s reading he often takes his glasses off and holds the book or the paper really close to his eyes, like about three or four inches. I wonder why he does that; I thought glasses were supposed to help you to see better.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Jane's transformation into Julia shocks everyone at school, attracting attention from both friends and foes."
 ---
-
 Please make sure you have read “Plain Jane No More” – Parts 1 and 2 before reading this.
 
 Another restless night. Vivid dreams. Glasses dreams. Wonderful dreams! Jane woke up at 6:45 when her mother came into her room to say goodbye. Her parents were going to a conference for 3 days and stopping over. Jane’s Aunt Mary was coming to stay for 3 nights to “baby sit” Jane. This plan was a mixed blessing. Jane could now get dressed in the clothes Linda had lent her, and go to school as Julia – the new Jane, but before she got home she would have to change back into her plain school clothes at Linda’s house before Aunt Mary saw her.

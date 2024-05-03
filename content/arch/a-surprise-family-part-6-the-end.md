@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young woman's journey to finding the perfect glasses for her wedding day becomes a heartwarming family affair.
 ---
-
 Bailey had only been wearing the -12D glasses for a few weeks and I wasn’t even sure she had adapted to them yet. When I told her that Dr. Sadler was going to examine her eyes and get her new, thinner lensed glasses for the wedding she wasn’t sure she wanted to do that. I had not told her that her eye exam and the new glasses were going to be my wedding gift from Dr. Sadler, and I could not understand why she wasn’t thrilled about this. The following morning, she went to my dresser drawer and took out the -14D glasses, which she put on and wore to school. Then it hit me. She didn’t want new thin lensed glasses in the -12D prescription she had been wearing. She would wear the -14D glasses until her eye exam and she was hoping that she would be able to adapt to the stronger lenses. We didn’t have much time as the wedding was going to be in 3 months and I needed at least a week to get Bailey’s new glasses in from the lab.
  
 The next day I was at work I checked Dr. Sadler’s schedule carefully. He had an opening in the late afternoon a week before what I considered the last possible safe day to get Bailey’s new glasses, so I booked her appointment. I knew what Bailey was trying to do and I wanted to give her as much time as I possibly could to get used to wearing a -14D prescription. I didn’t really think it would work, but I wanted to try  if that was what she wanted. Bailey had shown a lot of resiliency when it came to increasing her prescription. I couldn’t say anything to her, because I had done almost the same thing and I was quite happy with my prescription.

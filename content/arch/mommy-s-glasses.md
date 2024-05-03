@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young man meets a girl working at a restaurant and their relationship takes an unexpected turn.
 ---
-
-                                      
 I met Tara when I was 21, and was in my second year at university.  She was waiting tables at a restaurant that specialized in reasonably priced breakfasts and lunches where a lot of students hung out and I had started coming in every day for an early lunch.  To me, Tara was an attractive girl. She was quite thin, and didn’t have a huge chest size, but her face was very pretty and she had nice chestnut brown hair which she wore tied back in a ponytail. She was fairly tall for a girl, and I guessed that she was about 5’9”, or maybe a little more. Her main attraction for me were her glasses as I had always liked the looks of a girl who wore glasses for as long as I could remember.  Her glasses were what I would call cat eye glasses and the frame was a tortoiseshell colored plastic. The lenses had a substantial amount of power in them, but they were not what I would have considered really strong.  I estimated that they were somewhere between -5D and -6D, depending on the index of the plastic that was used for them.
  
 I first started eating my lunch at the restaurant where Tara worked in mid-September.  I spent almost 2 months chatting with Tara and I suppose I asked her for a date at least 20 times during this period. Finally in early November she agreed to go to a movie with me. This first date began a relationship that lasted about 2 years.  During this time I graduated, and after I started working as a chemical engineer I asked Tara to marry me.  She agreed, and we were married almost 2 years from the time we had our first date.

@@ -7,10 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A member of an eyeglasses fetish forum attends a convention in Niagara Falls, meeting fellow enthusiasts and experiencing new adventures.
+word_count: 1190
 ---
-
 The Convention
 
 

@@ -7,12 +7,9 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A man's attraction to girls in glasses leads him to his best friend's sister-in-law, with surprising consequences.
 ---
-
-                                       
- “You having a beer?”  Rob asked.
+“You having a beer?”  Rob asked.
  
 “If you are buying I’ll have a Heinnie.” I replied.
  

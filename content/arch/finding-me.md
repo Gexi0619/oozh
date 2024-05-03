@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A woman's deteriorating eyesight unveils secrets about her husband's fetish and threatens her relationship with her daughter.
 ---
-
 My diary  Finding Me 
 
 My husband has a glasses fetish,I think that is the only reason he married me.

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A blind woman discovers a pair of glasses and gains a newfound perspective on the world.
 ---
-
 --------------------
 A Minor Miracle
 --------------------

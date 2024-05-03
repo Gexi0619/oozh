@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A girl reluctantly gets glasses, but discovers newfound confidence and a friendship that changes her perspective.
 ---
-
 Nothing is going right these days
 My dad came home last night and told us, that he had a promotion and we are moving.
 That is not all, to day I had an eye exam, and was told I need to wear glasses

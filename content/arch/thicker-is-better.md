@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Pike indulges in an unconventional fetish of nearsightedness and thick glasses, sharing his journey of self-discovery.
 ---
-
 My name is Pike. I am middle aged and I have a 3 sided optical fetish.
 I like being nearsighted. I like being cross eyed. I like wearing very thick glasses.
 I started getting nearsighted when I was about 9.  I was always curious about mechanical and scientific things so when my Mom took me to the eye doctor the first time it was a whole new world of neat stuff in the exam room to ask questions about.

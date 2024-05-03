@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Amy's journey from curiosity to embracing glasses as a symbol of self-expression and identity."
 ---
-
 Amy s father is a lawyer, her mother a perfectionist, every thing has to be perfect and the very best., including her children.
 Amy was always kept busy with either dancing lessons , a self improvement course, and sometimes she did some modeling at local fashion shows, which she enjoyed very much.
 She was in her second year of high school, and developing into a beautiful young woman.

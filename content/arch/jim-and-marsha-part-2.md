@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Back to school brings new friendships, sports, and unexpected romance as Marsha and Jim discover a shared vision problem.
 ---
-
 Back to school
 
 Everybody was glad to be back at school and see all their friends and getup to date on all the news.

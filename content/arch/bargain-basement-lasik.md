@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When a couple discovers a tempting laser eye surgery deal, the husband secretly hopes his wife won't take the offer.
 ---
-
 Sara, my wife of 18 years looked up from reading the Sunday morning newspaper.
 
 “See, I told you the price would come down” Sara said.

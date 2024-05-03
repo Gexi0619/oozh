@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jane faces the possibility of a brain tumor while longing to reunite with her love, Linda.
 ---
-
 Please make sure you have read “Plain Jane No More” Parts 1, 2, 3 and 4 before reading this.
 
 Warning – this chapter contains adult content.

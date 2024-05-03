@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A couple discovers their newfound love for glasses and the adventures it brings to their lives.
 ---
-
 What a party it was!!!!!!!!
 A real FANTASY story.
 

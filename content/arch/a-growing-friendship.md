@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In their last year of college, Emma and Jen navigate classes, friendship, and unexpected secrets.
 ---
-
 Hey all! I am new to the story writing scene but figured I'd try my hand at it. Hope I didn't do too poorly  Additional parts to come!
 **Some adult content present**
 Emma walked into her first day of class and chose a seat back the front of the lecture hall. It was a chilly day to start the fall semester with the wind whipping, more reminiscent of a November day, rather than September across New York. Emma was beginning her last year of college and, while excited to see what the future held, had no interest in ending the best years of her life thus far. Standing 5’ 7”, Emma had light brown hair just longer than shorter length and sparkling blue eyes. An active tennis player and runner, she had an athletic build and had a somewhat intimidating but definitely attractive vibe. Studying to become a teacher, Emma was looking forward to finding a job as a high school math teacher upon graduation.

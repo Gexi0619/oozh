@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "A secret struggle to hide their poor vision leads to an unexpected alliance between two classmates."
 ---
-
 First Glasses:
 
 For the last couple of months I had been keeping a secret.  I could no longer see the blackboard well enough to tell exactly what the teacher had written on it.  So, I had been copying whatever Evan, the boy who sat next to me had written in his notebook.  I knew that this meant that I would probably have to get glasses, but as a 12 year old girl I just wasn’t ready to get glasses.

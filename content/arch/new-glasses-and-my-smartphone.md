@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A physicist's love story takes a bitter turn as he seeks solace in a new pair of glasses.
 ---
-
 Hello everybody! I am following this page for some time. Now it is time for my story. I hope you enjoy reading it.
 Daland
 

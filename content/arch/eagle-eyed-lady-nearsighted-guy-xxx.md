@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: When highly accomplished Katie meets awkward David, a shocking encounter sparks a hidden desire that changes their lives.
 ---
-
 1.
 
 Katie was one of those women who never let anything stand in her way. She was only 20 yet was already a senior in college. She had already been accepted into her university's prestigious medical school. She was also a champion swimmer, and wrote a column for the school newspaper. Despite this studious, overachieving nature, she was immensely charming, had a wicked sense of humor, and never had an iota of conceit. 

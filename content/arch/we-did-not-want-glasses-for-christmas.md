@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A family realizes their children need glasses after experiencing vision problems and resistance to wearing them.
 ---
-
 We did not want glasses, for Christmas.
 
 

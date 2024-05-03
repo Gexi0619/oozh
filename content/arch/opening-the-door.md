@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: After his wife's death, a man receives an email from her, leading him down a mysterious path.
 ---
-
 -----------------------
 Opening the Door
 -----------------------

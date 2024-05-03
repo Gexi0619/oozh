@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A 16-year-old boy falls in love with an actress/model, leading to a secret affair and acting success.
 ---
-
 When I was 15, and was in my first year of Senior High, I wasn’t interested in sports.  I had been a pretty good baseball player before my eyes went bad, but even though I now wore contact lenses I no longer had the urge to compete with the other guys on the playing field.  I then decided I would sign up for the drama club, since an extra curricular activity was looked upon very favorably by the administration.  Also, it didn’t hurt that our drama teacher was a very hot looking petite dark haired teacher with a body like a model.
 
 It was actually fun being in the drama club.  And, Mrs. England, our teacher seemed to think I had a natural flair for acting.  I didn’t think I did, but I certainly wasn’t going to argue with her, because I got one of the better parts in the school play.  And I soon found out that there was an extra bonus one afternoon when I came into the auditorium.  Mrs. England was standing talking with another absolutely gorgeous blond lady that I recognized from a movie that I had recently seen.  She introduced the lady as Melissa Sparkman the model and the actress, who just happened to be a very good friend of hers.

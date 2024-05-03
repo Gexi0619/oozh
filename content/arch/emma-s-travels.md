@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Emma survives a shipwreck, floats on a piece of wood, and washes up on an unfamiliar beach.
 ---
-
 --------------------  
 Emma's Travels  
 --------------------  

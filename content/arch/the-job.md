@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Jane's new job as a receptionist takes a surprising turn when she becomes a patient in her own workplace.
 ---
-
 The Job, Part 1
 This is my first story on V&S, but I do have a  story on Bobby's site 'The Fancy Dress Party. I wrote that some years ago and finding myself between jobs, I've  taken up the quill again.
 

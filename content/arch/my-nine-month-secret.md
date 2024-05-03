@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two students plan a summer adventure through Europe, navigating the allure of history and newfound freedom.
 ---
-
 Money is always scarce, when you’re a student, so it’s important to spend it wisely.  It is possible to spend three or four years at university, studying hard, and come out with a fantastic degree without ever really getting away from books and computers.  Even when you’re engaged in the most arduous research, and preparing for the next round of exams, it is important to have something to look forward to.  And so it was that my flatmate, Chloë, and I found ourselves discussing plans for the Summer holidays, even as the rain went past sideways outside.  Neither of us knew what would be happening after we graduated, but this could be our last opportunity to have a decent break this side of… retirement, presumably.  Chloë had a fair idea that she fancied training to become a History teacher.  I hadn’t dismissed the possibility, but my heart was not set on it, as hers was.
  
 We had got to know each other during our first term at university.  We were both studying European History, and both had rooms just over a mile from the university buildings.  Our lectures finished at the same times on the same days, so we found ourselves walking home together.  First of all, it was for companionship.  Later it was out of friendship and, as the nights drew in, also as a matter of safety.  We also spent a fair amount of time together in the evenings – either working or socialising – and when it came to finding a flatmate for the following year, Chloë was the obvious person.  Fortunately, she felt the same way about me.

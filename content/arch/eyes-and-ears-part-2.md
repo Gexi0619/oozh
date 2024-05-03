@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a race against time, a doctor helps a patient regain her sight and hearing, facing financial obstacles along the way.
 ---
-
 EYES and EARS  part 2 
 
 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young man navigates his attraction to men while working with a captivating family. Secrets and tensions arise.
 ---
-
 This story is dedicated to Julian  
 
 I knew I was different from other boys at a fairly young age, but I didn’t know just what it was that made me different.  And then as I grew older and into puberty I realized that I was attracted to boys, while most of my classmates were beginning to become interested in girls.  Of course I hid my attraction to other boys as well as I could, and I was fortunate in that I was not what some of the guys called a “flaming queer”. I didn’t prance around, or mince my steps or wiggle my ass when I walked or anything like that and other than the fact that I wasn’t interested in dating a girl I hope I hid my preferences for boys well.

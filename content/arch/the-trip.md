@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Follow Sherman's journey as he navigates the world of glasses and contacts, ultimately deciding which is truly best."
 ---
-
 During the summer of 2017 17 year old incoming high school senior Sherman was flying to Florida for his annual visit to his grandparents on his Mom's side. The grandparents looked forward to seeing their only grandchild every year. Sherman by then was an old pro at the trip as this would be his fourth year of going by himself.
 Sherman was first prescribed glasses at age 9 and it was not any kind of Doctor but Sherman himself who noticed he needed glasses for Myopia. Sherman riding in the back seat of the car with his Dad started asking if he should be able to see that sign and such. When told yes Sherman said I need to get my eyes checked. Sherman gets his glasses and is amazed at the difference they make and from almost day one wears them full time. As the years progress Sherman's glasses get stronger and finally by age 13 he -5R and -5.50L with some Astigmatism. It was at this visit the Optometrist suggests Sherman try contacts which he does. Sherman does not play school sports but does play some pickup basketball and football games so he and his parents say ok. Sherman does great with contacts following the schedule and is soon by design only wearing his glasses early in the morning before putting his contacts in and in the evening after removing them for the night. 
 There is one time Sherman has trouble with his contacts. On his first flight with contacts (but not his first flight) he finds them uncomfortable. Sherman who on this flight had only had contacts for about a year did not know about problems flying with them. On the next 3 flights Sherman wears his glasses planning to put his contacts in when he gets to Florida. The problem comes on the 2017 flight when Sherman's luggage with his contacts and solution gets misdirected to another location.

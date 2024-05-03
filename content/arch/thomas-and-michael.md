@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Two nearsighted lovers turn their unique vision into an advantage as they embark on daring heists.
 ---
-
 I was playing around with Chat GPT and it produced this quirky little story. I thought I’d share:
 
 Thomas and Michael had always had a love for adventure and excitement. They met in high school and quickly bonded over their shared love of nearsightedness and drag performance. But as they grew older, they realized that their passion for thrills and danger could be put to good use.

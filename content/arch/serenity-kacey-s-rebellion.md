@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: On her first day at a new boarding school, rebellious Kacey discovers she needs glasses and rebellion ensues.
 ---
-
 Serenity
 
 Story Two: Kacey's Rebellion

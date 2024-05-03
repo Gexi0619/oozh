@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A curious young woman fulfills her desire to wear glasses, navigating through online orders and escalating prescriptions.
 ---
-
-                                     
 As I progressed through school some of my friends needed and got glasses. I managed to pass all the vision screening tests, but part of me hoped that someday I too could wear glasses. There was just something about a glasses wearer that intrigued me and sometimes I wished I could join the club. But I managed to reach the age of 25 without needing glasses and of course I realized that I was fortunate that I had great eyesight. But still there was a pull at my heart every time I saw a young lady about my age looking really cute wearing the right pair of glasses.
  
 This desire to become a glasses wearer was so strong that I ordered a pair of glasses online. I had read a few stories about girls that wanted to become myopic, and although I figured I was past the age to have this happen I took note of everything I read. It appeared that the strongest prescription someone my age could wear with reasonable ease was around -3.00D. Not wishing to waste my money, I went online and ordered a pair of nice frames with -1.50D lenses, and after they came in the mail, I started to wear them all the time. Other than a few comments soon after I started wearing them no one seemed to treat me any differently, and in fact I had a couple of men ask me out after telling me I looked really cute wearing my glasses.

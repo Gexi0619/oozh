@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In his quest to find women who wear glasses, a recent widower navigates the complexities of attraction.
 ---
-
 Becoming a recent widower left me free to resume my hobby of searching for ladies who wear glasses.  While I had not stopped looking during my wife’s illness, I had not had any time to devote myself properly to the search. And now, even though I was what could be considered available, I still had a catch and release policy in place.
  
 During my late wife’s illness, Friday afternoons, and Saturday and Sunday mornings had shown themselves to be the best time to look around the local grocery stores. The traffic was much heavier at those times, and on the weekends the working ladies that would normally be contact lens wearers often went out shopping while wearing their glasses.

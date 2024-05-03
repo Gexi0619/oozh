@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A troubled child finds solace in online bullying, but a surprising revelation changes their perspective on glasses.
 ---
-
 The Bully, and EYESCENE.
 
 

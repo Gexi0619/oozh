@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Discover the thrilling journey of a NASCAR fan, from Bolle to Gargoyle sunglasses with hidden prescription inserts.
 ---
-
 This story is 100% true. I think anybody that reads both my fantasy and true posts on here knows I'm a big NASCAR and stock car racing in general fan. Even on fantasy stories I've sneaked something that happened in NASCAR on the day the story is on.
 One Sunday in the mid 90's while reading the magazine that comes with the Parade magazine that comes with the newspaper there was an article that talked about Bolle wraparound sunglasses. I liked the looks of them but didn't think with wearing regular glasses I could wear them. That was until I read about the prescription inserts. I ordered a pair with the inserts with my prescription in them. The Bolles looked just like regular sunglasses and while wearing them and people looking at you couldn't tell the inserts were in them. A coworker had prescription Oakley sunglasses around the same time frame and frankly I thought they looked stupid. I forget where I bought the sunglasses but Lenscrafters made the inserts. I used these glasses for a couple of years until I needed a prescription update which that overpriced optical I mentioned said I needed to buy new glasses. I told them they kiss a portion of my body.
 I happened to be a fan of the late Dale Earnhardt who tragically was killed on the last lap of the 2001 Daytona 500. Dale's Son who was racing just ahead of him when the wreck happened has retired from driving and now is a TV analyst on NBC's coverage of the races.

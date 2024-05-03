@@ -7,11 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a smoky bar filled with secrets, private investigator Philip Morris is summoned by the notorious Lucky Strike.
 ---
-
-                                              
 This story contains a few words that might be considered inappropriate as well as some specific sexual details. If you do not feel this is acceptable, please do not read it. 
  
 The smoke from far too many cigarettes hung low around the tables where others were sitting and the lights in the bar were dim enough that I had to remain quietly seated at a table in the darkened area for a few minutes to allow my vision to adjust.  While I was sitting there the barman walked over and asked me what my poison was.  I don’t come here often enough that the barkeeper automatically knows what I drink so I asked for my usual drink, a Canadian Rye on the rocks with just a splash of water.  When he returned with my glass of whiskey I had been able to take a good look around the room and I could see that the gentleman I wanted to talk to was there, sitting in the back corner with his current girlfriend. The barkeep asked me if I wanted to run a tab, and I replied that I would like to keep it straight with each drink in case I had to leave suddenly. He asked for the seventy five cents hard liquor drinks cost these days and I slipped him a dollar.

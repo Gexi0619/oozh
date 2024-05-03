@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A gripping tale of friendship, loss, and self-discovery as a woman navigates her desire for strong glasses.
 ---
-
 I have enjoyed writing this story, which will end with this, the fourth part.  I have lots of ideas that would allow me to continue, but the timeline prevents me from doing so. The original part 1 was written in the fall of 2015, soon after a story about the woman who blinded herself because of BIID.  Our friend Bobby was interviewed for a news article and he gave some very good answers and insights into the world of BIID.  With that idea in my mind I wrote part 1. The story was well received and I was urged to continue it, which I did in parts 2 and 3. But now we are into part 4 and we are now almost 16 years into the future.
 I don’t feel comfortable writing what is supposed to be a real time story into what will certainly be a changing world. As I sit here writing this a week has passed since the terrorist bombings and attacks in Paris France took place. What other changes will we see during the supposedly continued timeline of this tale? What effects would these changes have on any story that is written into the future?  Will people even wear glasses in 15 or 20 years? I just don’t feel comfortable continuing this. Please forgive me for this, and if you are reading this story in 2030, please accept it for what it is – a fictional tale.
 

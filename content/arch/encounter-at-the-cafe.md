@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A chance encounter at a cafe leads to an unexpected connection between two bespectacled strangers.
 ---
-
 -----------------------------
 Encounter at the Cafe
 -----------------------------

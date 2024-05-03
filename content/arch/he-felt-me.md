@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Amidst the pandemic, a woman finds love in a foreign stranger through an unexpected online connection."
 ---
-
 I know I’m gonna sound like an idiot saying this, but my pandemic time was FANTASTIC! I loved owning my time and even working in my house became such an easy thing to do. I could sleep more, enjoy my meals, and to me it felt amazing. I know a lot of people lost someone and that’s why I feel bad for saying this. 
 
 To the company I work for became way easier to have us doing home office and they decided to stick to it. I was so happy with this decision, until I realized I had stopped living my social life. I didn’t go out anymore, not even to the market or the mall, I could buy anything I needed and wanted online and I could have it almost immediately in my hands. One day I thought to myself that it was a good idea to go out to a local pub and see if I could maybe meet a guy, I felt very lonely by now and I’ve always been a pretty girl so I thought I wouldn’t have any trouble into getting someone to come home with me tonight. 

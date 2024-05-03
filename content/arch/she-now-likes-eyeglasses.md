@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: She now likes eyeglasses, but will her boyfriend accept her newfound appreciation for vision correction?
 ---
-
 She now likes eyeglasses
 
 

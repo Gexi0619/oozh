@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl's journey with glasses and hearing aids as her vision worsens and her confidence grows.
 ---
-
 The girl with the strong glasses. and hearing aids.
 
 

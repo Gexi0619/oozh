@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Bennie's Optical, the last store on Beecham Street, sells prescription optical items and indulges customers' desire for thick glasses.
 ---
-
 Bennie’s Optical was located in the last block of stores on Beecham Street, just before the street turned into a residential area that had certainly seen better days.  The homes in the next block were owned mostly by retirees who had outlived their pension money, and while the owners tried their best to keep their places looking reasonably decent the sad fact was that they didn’t have any money available to spend on repairs.  But Bennie didn’t really care as his main specialty was selling prescription optical items – for cash and sometimes without a prescription.
  
 For over 20 years Bennie had been catering to both men and women who wanted to wear very strong prescription glasses. It had caught Bennie off guard when he started to realize just how many customers he had that he was supplying strong plus or minus contact lenses to so they could wear the corresponding thick prescription glasses that they wanted over them.  Most of his customers preferred the looks of being very nearsighted. Bennie cautioned those who wished to wear very strong plus glasses about the fact that their vision would not be quite as good as if they went for the plus contacts with minus glasses combination, but even so there were a few who wanted to wear the plus glasses.  His customers were very grateful that Bennie was able to keep a close watch on their contact lens use and fit, and since they had no trouble getting a supply of new contacts they never had to wear their lenses for any longer than it was safe to do so. Also, Bennie was very proficient in testing their eyesight with their contact lenses in so that the very strong prescription glasses they wore gave them the best possible visual acuity that they could get.

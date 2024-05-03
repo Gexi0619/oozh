@@ -7,12 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: At the age of 8, Kendall discovers that her parents, who don weird glasses, indulge in an unusual hobby.
 ---
-
-                                         
- 
 My name is Kendall, and I am the oldest child of Dave and Janelle Duncan’s 2 children. My sister Rebekka is 18 months younger than I am, and when this story begins I was almost 8 and Bek was 6 and a half.
  
 I guess my dad knew that eventually I would be curious enough that he would have to tell me the truth of why he and mom wore really weird and strong looking glasses sometimes. Mom wore glasses all of the time, but dad only wore glasses on certain days. And most of the days that dad wore glasses, they were just ordinary glasses, but they still looked pretty strong. The glasses that mom wore all of the time didn’t look to be nearly as strong as dad’s did, but mom never went without her glasses like dad did sometimes. And then, on the weekend when they went out and Bek and I were looked after by a baby sitter the glasses that they both wore were really kind of weird looking. Their glasses both had very small circles in the middle of the lenses. Sometimes the following day dad would wear the same glasses he had worn the previous night, but mom generally wore her normal ones.

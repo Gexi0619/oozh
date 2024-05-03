@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: The arrival of a new girl changes an introverted girl's life, forcing her to face her fears and open up.
 ---
-
 - Hi y'all, this is my first time posting a story, also English isn't my first language so sorry in advance for any mistakes. I hope you enjoy reading it:) -
 
 

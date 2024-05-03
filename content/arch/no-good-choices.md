@@ -7,13 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: After experiencing persistent neck pain, Annabelle discovers a cancerous tumor and begins chemotherapy, fearing for her life.
 ---
-
----------------------
-No Good Choices
----------------------
 
 1. Growth
 

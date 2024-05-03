@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In "Eye Framed You - the Gemma Ruskin Story," a young girl's obsession with glasses leads to an unexpected revelation.
 ---
-
 The following extracts are taken from “Eye Framed You – the Gemma Ruskin Story,” written by Gemma Ruskin, and published in 2027.
  
 I couldn’t exactly say I was surrounded by people who wore glasses as I grew up.  My father had good eyesight and only started to wear glasses for reading when I was in my teenage years.  My mother was slightly short-sighted and occasionally wore her glasses when she was driving or watching the television.  More commonly, though, they were in the wrong place, so she just made do without them.  For me, glasses were things which some adults wore.  Children didn’t wear glasses, and the handful of them in my primary school who did, didn’t count, as I didn’t know them.  My brother, Max, inherited his eyesight from our father, whilst I … was different.

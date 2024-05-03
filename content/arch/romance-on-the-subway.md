@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In search of love and Russian romance, a man takes a fateful bus ride that could change everything.
 ---
-
 I walked towards the bus stop with a heavy heart. Was I doing the right thing, or was I heading for failure?  Until now I hadn’t been able to find a woman to share my life with, so at age 27 I was a single man, still living at home with my parents, and looking for a girlfriend on the internet. And that is why I was heading towards the bus stop. I needed to go downtown to the Russian Embassy to get a visa so that I could go to Russia and meet a couple of the ladies in person whose appearance in pictures interested me.
 
 The bus was fairly empty and since I live close to the beginning of the line I can always find an empty seat. I sat down on the seat behind the driver facing the curb. These seats do not run across the bus, but are parallel to the bus walls near the front to allow a person in a wheelchair to ride there.  A few more passengers got on at the next couple of stops, and at the third stop a young lady got on. I looked at her and willed her to sit next to me. I doubt that it was my wishing that made her take the empty seat beside me, but rather that most of the other seats were filled now.

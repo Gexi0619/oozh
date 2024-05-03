@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In a world where "cool" is defined by the popular kids, one girl stands up to bullying and discovers her own strength.
 ---
-
 This was a story I wrote a while ago, I just found it... sorry it is long!
 
 If you think about the word ‘cool’ you come to realise that it has multiple meanings.  All of them are pretty subjective. Moderately cold is about as close to an absolute meaning as you can get.  

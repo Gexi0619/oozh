@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A twelve-year-old boy becomes infatuated with a girl, only to shift his attention to her introverted sister.
 ---
-
 I first became aware of a girl named Dyanna Hunter the year I was 12 and went to junior high, as Dyanna was in grade 8 that year.  I was fascinated by Dyanna and I loved looking at her thick glasses, which to me seemed to be about 2” thick.  They really weren’t more than about an inch thick, but oh my gosh they seemed so thick.  And I wasn’t the only one that called Dyanna the girl with the 2” thick glasses because most of the other guys in grade 7 with me also called her that.
  
 Dyanna really captivated my attention, and I don’t know if it was because of her thick glasses, or if it was because she was just about the cutest girl I had ever seen.  The thickness of her glasses didn’t bother me at all, but she was a year older than me and a year ahead of me in school so there was no way I was ever going to get a chance to do anything more than say a quick “hi” to her every time I met her in the hall. Even if I had the confidence to say anything else to her, she seemed to have her pick of any of the guys in grade 9, who all seemed to lust after that cute girl with the really strong and thick glasses and the long blonde hair and the perfect body.  But I did spend an awful lot of my time in grade 7 dreaming about Dyanna Hunter.

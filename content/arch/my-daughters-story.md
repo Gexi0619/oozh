@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Ashley, a young girl with a fascination for eyeglasses, discovers the wonders of clear vision and self-confidence.
 ---
-
 Ashley sure is a lot different than my other child, her older brother Kevin.
 She will soon be 6 years old.
 She talks and explains things almost like an adult, loves to read, and watch T.V.

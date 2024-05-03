@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: ummarize this story?
 ---
-
 The perfect, family. part 1
 
 

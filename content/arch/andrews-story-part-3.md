@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: In the third part of Andrew's story, Mary receives her new reading glasses, but has a negative reaction.
 ---
-
 Andrews story part 3 
 
 Mary's phone bleeped,

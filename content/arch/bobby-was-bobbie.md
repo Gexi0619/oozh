@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: "Two engineering students become friends, but one's changing glasses prescription leads to a surprising revelation."
 ---
-
 A few years back, when I was still a naive young kid, I left the home in the small town where I had been raised and headed off to conquer the world.  My first step in this venture was to go to university and obtain my degree in environmental engineering. In my mind mankind has really been destroying the environment and something was going to have to be done or there would eventually be no more world for me to conquer.
 
 That is how I ended up in a 2 person room at the university dormitory. My parents, in their wisdom, had suggested that it would be best if I roomed with someone for the first year, and then I would be able to find some friends the following year to rent a house with.  I was there a day before my roommate showed up and I found him to be a very pleasant, and rather good looking young man.  I really liked his glasses, as they seemed to be a little thicker than those of most other glasses wearers I had known.  He had a heavy black frame in a wayfarer style and the front of his lenses looked to be totally flat.  There was a bit of lens thickness sticking out to the rear of the frame, and when you looked at Bobby’s face head on you could see that his face was shrunk in a fair bit by the lenses.  I had been attracted to people who wore glasses for most of my life, and while I would have rather seen a female wearing these glasses I had a hard time keeping my eyes off Bobby’s glasses. 

@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: Kate, an average girl with a love for glasses, discovers her own need for them and embraces her new look.
 ---
-
 My name is Kate.
 I am an average  looking girl , with blondish hair.
 I have two older sisters.

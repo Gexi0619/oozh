@@ -7,10 +7,8 @@ categories:
 tags:
   - 
   - 
-thumbnail: 
-description: 
+description: A young girl navigates the challenges of growing up with glasses and discovers her own self-confidence.
 ---
-
 I will be your glasses wearing girl.
 
 
